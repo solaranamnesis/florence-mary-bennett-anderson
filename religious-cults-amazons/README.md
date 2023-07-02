@@ -1,0 +1,6 @@
+# Religious Cults associated with the Amazons.
+
+[English - Plain Text](full-text-english.md)  
+English - PDF  
+German - Plain Text  
+German - PDF  
