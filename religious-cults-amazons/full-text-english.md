@@ -50,7 +50,7 @@ The inference is inevitable, that among the great painters the Amazons were popu
 
 Such then in a general way is the tradition of the Amazons, which had an important place in Greek art and literature. This review is the natural introduction to the study of cults associated with these women, for without a clear understanding of the legend certain details of cult-practice are obscure. The points which should bear emphasis are these:--- the persistent belief among the Greeks in the real existence of Amazons; the conception of them as unusually fierce warriors, and this in spite of various tendencies of thought destructive of such an idea; the habit of associating them with certain definite geographical centres.
 
-# Chapter 2. The Great Mother.
+# Chapter 2 --- The Great Mother.
 
 More primitive than the worship of the gods under anthropomorphic form is the custom of reverencing this or that deity in baetylic or aniconic shape, a habit of religious cult for which there is ample evidence in the writings and monuments of the Greeks. This evidence, however, usually indicates such worship only in very early times, showing that it gave place here and there to a more highly developed stage, that of iconic symbolism, but there are examples of this primitive conception of deity in late times. Conspicuous among these survivals is the worship of Cybele under the form of the Black Stone of Pessinus in Phrygia. By order of the Sibylline books the cult was transplanted to Rome, in 204 B. C., as a means of driving Hannibal out of Italy.*
 
