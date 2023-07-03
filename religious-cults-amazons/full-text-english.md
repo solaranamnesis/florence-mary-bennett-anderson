@@ -6,17 +6,17 @@
 
 ---
 
-# [Chapter 1 --- The Amazons in Greek Legend.](#chapter-1-----the-amazons-in-greek-legend)
+# [Chapter 1 --- The Amazons in Greek Legend.](#chapter-1-----the-amazons-in-greek-legend-1)
 
-# [Chapter 2 --- The Great Mother.](#chapter-2-----the-great-mother)
+# [Chapter 2 --- The Great Mother.](#chapter-2-----the-great-mother-1)
 
-# [Chapter 3 --- Ephesian Artemis.](#chapter-3-----ephesian-artemis)
+# [Chapter 3 --- Ephesian Artemis.](#chapter-3-----ephesian-artemis-1)
 
-# [Chapter 4 --- Artemis Astrateia and Apollo Amazonius.](#chapter-4-----artemis-astrateia-and-apollo-amazonius)
+# [Chapter 4 --- Artemis Astrateia and Apollo Amazonius.](#chapter-4-----artemis-astrateia-and-apollo-amazonius-1)
 
-# [Chapter 5 --- Ares.](#chapter-5-----ares)
+# [Chapter 5 --- Ares.](#chapter-5-----ares-1)
 
-# [Conclusion.](#conclusion)
+# [Conclusion.](#conclusion-1)
 
 ---
 
