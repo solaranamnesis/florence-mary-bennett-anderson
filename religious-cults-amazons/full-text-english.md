@@ -4,6 +4,22 @@
 
 ### Columbia University Press, New York, 1912.
 
+---
+
+# [Chapter 1 --- The Amazons in Greek Legend.](#chapter-1-----the-amazons-in-greek-legend)
+
+# [Chapter 2 --- The Great Mother.](#chapter-2-----the-great-mother)
+
+# [Chapter 3 --- Ephesian Artemis.](#chapter-3-----ephesian-artemis)
+
+# [Chapter 4 --- Artemis Astrateia and Apollo Amazonius.](#chapter-4-----artemis-astrateia-and-apollo-amazonius)
+
+# [Chapter 5 --- Ares.](#chapter-5-----ares)
+
+# [Conclusion.](#conclusion)
+
+---
+
 # Chapter 1 --- The Amazons in Greek Legend.
 
 The _Iliad_ contains two direct references to the Amazons:--- namely, in the story of Bellerophon* and in a passage from the famous teichoscopy.* The context to which the first of these belongs is classed by critics as an "echo" from the preHomeric saga, and therefore it may be inferred that the Amazon tradition in Greek literature dates from a time even earlier than the Homeric poems. The description of the women here is very slight, being given by the epithet [GREEK] of the line: [GREEK],* but, from the facts that battle with them is considered a severe test of the hero's valour and that as warriors they are ranked with the monstrous chimaera, the fierce Solymi, and picked men of Lycia, we gather that they are conceived as beings to be feared. The scene of combat with them is Lycia. The second of the two passages cited above is more definite. Priam, exclaiming on the happy lot of Agamemnon, who has been pointed out to him, says to Helen: "Oh, happy Atreïd, fate's child, blessed with prosperity! Verily, to thee are many subject, youths of the Achaeans! Once did I go to vine-rich Phrygia, where I beheld vast numbers of Phrygian men with swift-moving steeds, the people of Otreus and godlike Mygdon, who were then encamped by the banks of the Sangarius. For I was numbered an ally with these on that day when the Amazons came, pitted against men. Yet even these were not as many as are the quick-glancing Achaeans." Although the characterisation is the same as in the Bellerophon story ([GREEK]), there is gain in that the impression of the Amazons as a mighty band of warriors is strengthened, also that the event has its place in the conventional chronology of Greek legend, antedating the Trojan War. It is to be noted, moreover, that here the Amazons are the aggressors on the confines of Phrygia.
