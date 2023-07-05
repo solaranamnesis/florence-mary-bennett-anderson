@@ -172,13 +172,31 @@ This naturally introduces the general subject of the treatment of the Amazons in
 
 The famous free-standing statues of Amazons which have come down to us, and which inherit the artistic tradition of the masters of the fifth century,* show the same sympathetic treatment. The face is calm and ideally beautiful, the body is that of a young woman in her prime, strong, supple, and graceful, dressed in a short tunic which leaves one breast bare.*
 
+*) _Cf._ Plin. _N. H._ 34. 75.
+
+*) In the Mattei type the left breast is bare, in the Capitoline, the right. In the Berlin type and in that in Lansdowne House the left breast is entirely bare, and the right is almost entirely so.
+
 There are also examples of the mounted Amazon in sculpture. Perhaps one of the finest bits in existence is the fragment of horse and woman-rider from Epidaurus, now in the National Museum at Athens. This Amazon wears a short belted tunic and also a mantle fastened about her neck. She is remarkably lithe and beautiful; she sits her horse perfectly; best of all is the contrast between her slender body and the powerful and sinewy frame of the animal.
 
 In the museum at Naples there is a piece of sculpture in the style of a later period. It represents a dead Amazon, lying supine. She wears the conventional dress, the short tunic which reveals the bare breast, and under her is a spear. Her lips are open in the last struggle for breath. About the whole figure there is a note of sadness. The distended breasts suggest maternity, a detail which possibly indicates that the figure of a baby was originally grouped with this Amazon. Special interest attaches to this work as a type of the Amazon in the last days of Greek art, before its vigour had departed, for it is doubtless a detail, in close copy of the original, from the group which Attalus set up on the Acropolis at Athens.*
 
+*) Paus. 1. 25, 2; Plut. _Anton._ 60; _S. Q._ 1995, 1996.
+
 In vase-paintings, rather than in sculpture, we find the characteristic weapons of the Amazons, the shield shaped like an ivy-leaf,* the Scythian bow,* and the battle-axe.* Here also we see the mantle of panther's skin similar to that which Penthesilea wore in the painting by Polygnotus at Delphi.* The types of Amazons in vase-painting are numerous. They are shown in every conceivable situation indicative of their prowess in battle and in the hunt, --- on foot, on horseback, in chariots, preparing for combat, taking the ephebes' oath, bearing away the dead, and so on.* The groups on the vases frequently recall the friezes. In addition to these portrayals of the Amazons in general the vases show scenes from the Heracles saga and from the legend of Theseus.
 
+*) Xen. _ap._ Pollux, 1. 134; Plin. _N. H._ 3. 43; Paus. 1. 41, 7.
+
+*) Paus. 10. 31, 8.
+
+*) The double-axe is called [GREEK] (_securis_) and also [GREEK]. _Cf._ Xen. _Anab._ 4. 4; Q. Sm. 1. 597. Plutarch (_Pomp._ 35) mentions the axe and the _pelta_ as Amazonian arms. The latter was carried also by the Thracians and Persians.
+
+*) Paus. 10. 31, 8.
+
+*) Corey tabulates the types which he finds in vase-painting, _op. cit._ pp. 49 ff.
+
 The inference is inevitable, that among the great painters the Amazons were popular as a subject, for it is to be presumed that in these themes, as in others, the potters' workshops merely followed the fashion of the art which they distantly reflected. First-hand evidence of the manner in which painters managed the presentation is not available. The vases furnish the best information on this point, and their testimony may be eked out by a few passages from literature.*
+
+*) _Cf. e. g._ Paus. 1. 15, 2; 10. 31, 8. _Cf._ Frazer, _Paus._ 2. 139.
 
 Such then in a general way is the tradition of the Amazons, which had an important place in Greek art and literature. This review is the natural introduction to the study of cults associated with these women, for without a clear understanding of the legend certain details of cult-practice are obscure. The points which should bear emphasis are these:--- the persistent belief among the Greeks in the real existence of Amazons; the conception of them as unusually fierce warriors, and this in spite of various tendencies of thought destructive of such an idea; the habit of associating them with certain definite geographical centres.
 
@@ -186,11 +204,41 @@ Such then in a general way is the tradition of the Amazons, which had an importa
 
 More primitive than the worship of the gods under anthropomorphic form is the custom of reverencing this or that deity in baetylic or aniconic shape, a habit of religious cult for which there is ample evidence in the writings and monuments of the Greeks. This evidence, however, usually indicates such worship only in very early times, showing that it gave place here and there to a more highly developed stage, that of iconic symbolism, but there are examples of this primitive conception of deity in late times. Conspicuous among these survivals is the worship of Cybele under the form of the Black Stone of Pessinus in Phrygia. By order of the Sibylline books the cult was transplanted to Rome, in 204 B. C., as a means of driving Hannibal out of Italy.*
 
+*) Livy, 29. 10, 11.
+
 Apollonius* represents the Amazons engaged in ritual exactly similar to that of Pessinus --- venerating a black stone placed on an altar in an open temple situated on an island off the coast of Colchis. The character of the worship which he depicts makes it probable that he drew his information on this point from an early source, especially since we learn from Diodorus* that the Amazons paid marked honour to the Mother of the Gods, consecrating to her the island of Samothrace, setting up her altars there, and performing magnificent sacrifices. At any rate, the two passages substantiate the fact that the Amazons were votaries of the Mother, who was known both as Rhea and as Cybele.
+
+*) Apollon. _Argon._ 2. 1172-1177. Because of its resemblanoe to the Black Stone of Pessinus, it seems impossible to interpret the stone mentioned by Apollonius otherwise than as the symbol of Cybele, although it was placed in a temple of Ares. For the view that it represented Ares _v._ H. de La Ville de Mirmont, _La Mythologie et les Dieux dans les Argonautiques et dans l'Énéide_, Paris, 1894, p. 569. _V. infra_, n. 346.
+
+*) Diod. Sic. 3. 55.
 
 One story* told that Scamander introduced the rites of the Cretan Mother into Phrygia, and that they were firmly established at Pessinus on the Sangarius as a chief centre, where the goddess received from the mountain ridge overhanging the city the well-known name, Dindymene;* another account* had it that the home of Phrygian Cybele's worship was in Samothrace, whence Dardanus brought the cult to Phrygia; an attempt to rationalise the two legends developed the tale* that Corybas of Samothrace, son of Demeter and Jasion, introduced the rites of his mother into Phrygia, and that his successors, the Corybantes of Mount Ida in the Troad, passed over to the Cretan mountain of the same name, in order to educate the infant Zeus. In the minds of the various writers of antiquity to whom we are indebted for all that we know about orgiastic cults there is such confusion that we are left in ignorance of accurate details which would serve to distinguish sharply one cult from another.
 
+*) Apollod. 3. 12; Diod. Sic. 4.
+
+*) Strabo, 10. pp. 469, 472; 12. p. 567. Cf. Hor. _Carm._ 1. 16, 5; Catull. _Atys_, 63.
+
+*) Diod. Sic. 5. 64.
+
+*) Hyg. _Poet._ 2. 4.
+
 We are informed on several points, however, concerning the worship of Cybele, the Great Mother of Phrygia, considered apart from other cults similar in character and expression. Her worship at Pessinus in particular is most important to an inquiry concerning the Amazons, because there, attested by history, was the same baetylic form of the goddess under which the Amazons were said to have venerated her. Roman writers naturally, after the Black Stone had been set up in their city, were moved by interest and curiosity to examine the legends connected with the cult, and so it happens that to these sources we owe many facts, often gleaned from the poets of the early Empire who looked with disgust on the great vogue of this orgiastic cult in their day. Cybele of Pessinus was served by eunuch priests called Galli.* This office of priesthood, which was considered very honourable, seems to have commemorated the devotion of Atys to the goddess. Fortunately we have a record* of the peculiar form which the legend of Atys assumed at Pessinus. Here he was regarded as the son of a maiden by the fruit of an almondtree, which sprang from the bi-sexual Agdistis. Agdistis* loved him and made him her _paredros_ and Gallus. From the same source, Pausanias, we learn the Lydian variant of the story.* In this he is called the son of Calaüs of Phrygia. He established the orgies of the Mother in Lydia, in connection with which he was so loved by the goddess that Zeus in jealousy sent a wild boar into the fields of Lydia, which killed Atys. Both versions show that the youth held in Cybele's mysteries a position similar to that of Adonis with Aphrodite and of Osiris with Isis,* but it seems to have been the peculiar characteristic of the cult of Cybele that her companion was a Gallus. The fact which stands out conspicuously in all the records of the Pessinuntian rites is the service of effeminate priests,* who apparently represent him. In this there is probably a clue to the connection between Cretan Rhea and Phrygian Cybele, for in the two sets of cult legends there is frequent mention of the Dactyli, who belong both to Cretan and Trojan Ida.* Their evident association with metallurgy recalls the iron sickle produced by Gaea and given to Cronus to accomplish the overthrow of Uranus.*
+
+*) Strabo, 10. pp. 469, 572; 12. p. 567; 14. pp. 640-641; Diod. Sic. 3. 58; _Mar. Par. ap._ C. Müller, Fr. 1. 544; Ovid, _Fasti_, 4. 237, 363; Plin. _N. H._ 5. 147; 11. 261; 31. 9; 35. 165; Catull. _Atys. Cf. Anthol. Pal._ 7. 217-220.
+
+*) Paus. 7. 17, 10-12.
+
+*) Strabo (12. p. 567) says that Cretan Rhea received the name Agdistis at Pessinus, and that on Mt. Agdistis near this city the tomb of Atys was shown. _Cf._ Paus. 1. 4, 5.
+
+*) Paus. 7. 17, 9-10.
+
+*) For a complete treatise on Atys _cf._ Frazer, _Attis, Adonis: Osiris_, in _Golden Bough_, Part 4.
+
+*) The idea was revolting to the Greeks. _Cf._ Herod. 3. 48; 8. 105; Aristot. _Polit._ 5. 8, 12. The practice was common among the Phrygians and other Asiatics of ancient times. With Herod. 8. 105 _cf._ Soph. Fr. from _Troilus ap._ Pollux, 10. 165. As a religious detail it belonged to the rites of Artemis at Ephesus, to those of Zeus and Hecate at Lagina in Caria, to those of Aphrodite at Bambyce, or Hierapolis, in Syria. In each of these instances the deity partakes in some measure of the characteristics of Cybele. _Cf._ Farnell, _Cults of the Greek States_, 2. pp. 506 ff., p. 590.
+
+*) Hesiod. _Theog._ 161; Schol. Ap. Rh. 1129 (quoting _Phoronis_); Strabo, 10. p. 472.
+
+*) The story of the overthrow of Uranus belongs to the Hesiodic theogony (Hes. _Theog._ 160, 182). It has a counterpart in the later Orphic theogony, in the story of the overthrow of Cronus by Zeus. Both myths centre about the Dictaean Cave in Crete. The worship of Dictaean Zeus seems to have belonged to the Eteocretans (Strabo, 10. p. 478).
 
 The underlying idea in the cult of Cybele seems to have been that of an earth-goddess of fertility in man, beast, and field. Her worship was accompanied by the sound of crashing drums and cymbals, the music of the pipe, and the voices of frenzied votaries. Of her inspiration came a form of holy madness, which endowed the worshipper with a sense of mystic ecstasy and supernatural strength. The best extant description of the rites is that given by Lucretius,* which, although it is marred by the allegorising tendency of the poet's thought, conveys an excellent impression of the tumultuous festival. The most awe-inspiring detail of the ceremonies is that beneath the joy of the throng's self-surrender to the deity there is a terrific undertone like that of the muttering drums. The fervour of rejoicing may in a moment become the curse of irresistible madness sent by the Mother. It is a presage of the mourning in the _Atys_ of Catullus:*
 
@@ -198,37 +246,175 @@ The underlying idea in the cult of Cybele seems to have been that of an earth-go
 Procul a mea tuus sit furor onmis, hera, domo:  
 Alios age incitatos: alios age rabidos!"  
 
+*) Lucr. _De Rerum Natura_, 2. 600-640.
+
+*) Catull. _Atys, ad finem._
+
 Ancient notices speak of other priests of Cybele, less important than the Galli. These were the Cybebi and Metragyrtae,* mendicant friars, whose machinations at Rome were scorned by Juvenal.*
+
+*) Photius and Suidas _s. v._ [GREEK]. These priests find a strikingly exact counterpart in the howling dervishes of Mohammedanism. In fact, many close parallels to the worship of the Great Mother may be met in the Orient today. The word _Cybebus_ is evidently the masculine form of the name of the goddess, given by Herodotus as [GREEK] (Herod. 5. 102).
+
+*) Juv. _Sat._ 6. 512 ff.
 
 In the cult legends the Galli of history are probably represented by the Corybantes, about whom there is much confusion. At times they seem to belong only to Cybele's rites, at other times they are completely identified with the Curetes. Probably the tales of Corybantes and Curetes preserve the record of primitive armed dances of religious character, in honour of Phrygian Cybele and Cretan Rhea respectively. As the two deities are essentially the same,* so the hoplite attendants of the one are practically the same as those of the other. As each cult assumed local individuality, the myths concerning the Corybantes would gradually appear to be quite distinct from those about the Curetes. Naturally, only an initiate in the mysteries attached to either cult would possess accurate information on details, and his lips would be inevitably sealed on all important points, so that posterity must be content to remain puzzled by remarks like this of Pausanias:* "In lineage the Corybantes are different from the Curetes, but, although I know the truth about both, I pass it over." Unfortunately certain writings by Epimenides* which might have proved highly satisfactory to modern inquiry have perished. In the actual ceremonies performed at Cybele's shrines the original warlike character* was almost lost in the mystic frenzy which found expression in noisy shouting and self-affliction, but it is doubtless to be traced in the measured beating of drums, the clashing of cymbals, and the music of the pipe, which set the rhythm for the ecstatic motions of the worshippers. It was expressed also in the political and warlike aspect of the goddess thus adored.* The Cretan legends told that the Phrygian Corybantes were summoned to the island, where by beating their shields with their swords they drowned the cries of the new-born Zeus from the ears of his jealous father, and so originated the Pyrrhic dance in which the later Curetes honoured Rhea, by moving to and fro in measured time, nodding their crested helmets, and striking their shields.*
 
+*) The two deities were so completely blended into one that even in early Greek writings it was needless to discriminate between them. _Cf._ the complete identification of Rhea with Cybele in the Homeric _Hymn to the Mother of the Gods_ (14).
+
+*) Paus. 8. 37, 6.
+
+*) The [GREEK] and [GREEK] of Epimenides, referred to in Strabo, 10. p. 474, and Diog. Laert. 1. 10.
+
+*) In the course of excavations at Palaikastro in Crete a hymn of the Curetes was discovered, which is dated about 300 B. C. The hymn is discussed in three papers, _British School Annual_, 15 (1908-09): 1. Miss J. E. Harrison (pp. 308-338), "The Kouretes and Zeus Kouros: A Study in Pre-historic Sociology"; 2. R. C. Bosanquet (pp. 339-356), Text of the Hymn and certain religious aspects, "The Cult of Diktaean Zeus" and "The Cult of the Kouretes"; 3. Gilbert Murray (pp. 356-365), Restored Text, Translation, and Commentary. Miss Harrison's study is under these headings: "1. The Kouretes as [GREEK] and [GREEK]; 2. The Kouretes as Magicians, as [GREEK] and Metallurgists; 3. The Kouretes as armed [GREEK] 4. The Kouretes as [GREEK] and [GREEK]; 5. Zagreus and the Thunder-Rites; 6. The Kouros as Year-God; 7. The Kouretes as [GREEK]." The three articles form a very valuable contribution to the study of orgiastic cults and kindred subjects.
+
+*) Farnell speaks with certainty (_op. cit._ 2. p. 306) of the primitive warlike character of Cybele.
+
+*) Hesiod. _Theog._ 452, 487; Apollod. 1. 1, 6. The Orphic theogony connects the shouts of the Curetes and the clashing of their shields with the story of the overthrow of Cronus by Zeus. _Cf._ Lobeck, _Aglaoph._ p. 519; Hermann, _Orphica_, 6. p. 456.
+
 The Curetes are, moreover, confounded with the Dactyli, who are usually given as five in number, --- Heracles, Paeonius, Epimedes, Jasion, and Idas,* --- the metallurgists of Cretan and Trojan Ida, also with the mysterious [GREEK], who are either the Dioscuri or the Cabiri.* Idas is the name, not only of a Curete, but likewise of one of the Messenian rivals and counterparts of the Spartan [GREEK];* Jasion is the name of the mortal whom Demeter loved in Crete,* and who with her belongs to the mysteries of Samothrace; the Dactyl Heracles, whom Pausanias* carefully distinguishes from Alcmena's son, is by this writer* very cleverly identified with the deity of this name worshipped at Erythrae in Ionia, at Tyre, and even at Mycalessus in Boeotia. The Cabiri, being confounded with the Dactyli, are brought into close relation to the Curetes. On the other hand, they are confused with the Corybantes through Corybas, son of Jasion and Demeter, who was said to have introduced his mother's worship into Phrygia from Samothrace.*
 
-Of the Cabiric mysteries very little can be said with certainty, except that Demeter was here revered as the mother of Plutus by Jasion. Herodotus,* himself an initiate, believes the mysteries of Samothrace to be of Pelasgic origin. He hints at a connection between these rites and the Pelasgians' introducing herms at Athens. Furthermore, he describes* the type under which the Cabiri were portrayed in plastic art, that of a pygmy man, precisely like the _pataïci_, or grotesque figure-heads which the Phoenician triremes carried. Excavations at the Cabirium in Thebes have yielded a unique class of vases which confirm his statement.* Their chief interest, apart from the peculiarities of technique,* is in the frank caricature shown in the painted figures. The scenes are chiefly Dionysiac in character,* from which it is to be inferred that the Theban Cabirus was a form of Dionysus, but this hardly agrees with the words of Pausanias,* who uses the plural number of the Cabiri at Thebes. He says that he is not at liberty to reveal anything about them, nor about the acts which were performed there in honour of the Mother, that he can only say that there was once a city on this spot, that there were certain men called Cabiri, among whom were Prometheus and his son, Aetnaeus, and that the mysteries were given by Demeter to the Cabiri. This account favours Welcker's theory* that the Cabiri were the "Burners." In this capacity they would approach closely to the Dactyli. But they are not for this reason necessarily divorced from companionship with Dionysus, whom Pindar* calls the _paredros_ of Demeter: [GREEK]. The epithet [GREEK] shows the intimate bond between Demeter and the Mother of the Gods.* Dionysus is placed naturally at the side of the former, since his worship, in cult and in legend, is to be classed with that of the Great Mother of Phrygia, Rhea's double.* Demeter is, indeed, the Earth-Mother of Greece, on whose cult ideas were grafted which belonged to the ceremonial of the Mother in Phrygia and Lydia.*
+*) Paus. 5. 7, 6. The scholiast on the passage sasrs that they were ten in number. Paus. gives the same names for the five, 5. 14, 7.
+
+*) Paus. 10. 38, 7.
+
+*) On Idas and Lynceus _cf._ Pind. _Nem._ 10. 55-90; Paus. 4. 3, 1.
+
+*) Hes. _Theog._ 970; Verg. _Aen._ 3. 168.
+
+*) Paus. 5. 7, 6; 5. 14, 9.
+
+*) Paus. 9. 27, 6-8.
+
+*) Diod. Sic. 5. 64; Hes. _Theog._ 970.
+
+Of the Cabiric mysteries very little can be said with certainty, except that Demeter was here revered as the mother of Plutus by Jasion. Herodotus,* himself an initiate, believes the mysteries of Samothrace to be of Pelasgic origin. He hints at a connection between these rites and the Pelasgians' introducing herms at Athens. Furthermore, he describes* the type under which the Cabiri were portrayed in plastic art, that of a pygmy man, precisely like the _pataïci_, or grotesque figure-heads which the Phoenician triremes carried. Excavations at the Cabirium in Thebes have yielded a unique class of vases which confirm his statement.* Their chief interest, apart from the peculiarities of technique, is in the frank caricature shown in the painted figures. The scenes are chiefly Dionysiac in character,* from which it is to be inferred that the Theban Cabirus was a form of Dionysus, but this hardly agrees with the words of Pausanias,* who uses the plural number of the Cabiri at Thebes. He says that he is not at liberty to reveal anything about them, nor about the acts which were performed there in honour of the Mother, that he can only say that there was once a city on this spot, that there were certain men called Cabiri, among whom were Prometheus and his son, Aetnaeus, and that the mysteries were given by Demeter to the Cabiri. This account favours Welcker's theory* that the Cabiri were the "Burners." In this capacity they would approach closely to the Dactyli. But they are not for this reason necessarily divorced from companionship with Dionysus, whom Pindar* calls the _paredros_ of Demeter: [GREEK]. The epithet [GREEK] shows the intimate bond between Demeter and the Mother of the Gods.* Dionysus is placed naturally at the side of the former, since his worship, in cult and in legend, is to be classed with that of the Great Mother of Phrygia, Rhea's double.* Demeter is, indeed, the Earth-Mother of Greece, on whose cult ideas were grafted which belonged to the ceremonial of the Mother in Phrygia and Lydia.*
+
+*) Herod. 2. 51.
+
+*) Herod. 3. 37.
+
+*) _Cf. Journ. Hellen. Studies_, 13. pl. 4; _Athenische Mitteilungen_ (1888), pl. 9-12.
+
+*) Paus. 9. 25, 5-6.
+
+*) Welcker, _Aeschyl. Trilogie_, pp. 161-211. He connects the word with [GREEK].
+
+*) Pindar, _Isth._ 6. 3.
+
+*) _Cf. Homeric Hymn_, 14. 3-4.
+
+*) On the Phrygian character of the music used in the worship of Dionysus, _cf._ Aristot. _Polit._ 8. 7, 9. Euripides in the _Bacchae_ completely identifies the rites of Dionysus with the Phrygian worship of the Mother. _Cf._ especially lines 58 ff. Euripides in the _Helena_, 1320 ff., assigns to Demeter all the attributes of Rhea. Apollodorus tells (3. 5, 1) that Dionysus, driven mad by Hera, was cured by Rhea at Cybela in Phrygia, and that he received from her woman's attire.
+
+*) On the worship of Cybele in Lydia _cf._ Herod. 5. 102; Paus. 7. 17, 9-10. An epitaph by Callimachus (_Epigram._ 42, p. 308, ed. Ernst) illustrates the general resemblance of one orgiastic cult to another. This tells of a priestess who had served Demeter of Eleusis, the Cabiri, and, finally, Cybele. _Cf._ also the history of the Metroüm at Athens, which was in earlier times a temple of Eleusinian Demeter (Arrian, _A. O_; Hesych. _s. v._ [GREEK]; Dion. Hal. _Dein._ 11. p. 658, 3), but served later as temple of the Mother of the Gods, of whom Phidias, or Agoracritus, made the statue with tympanum and lions as attributes (Arrian, _Peripl._ 9; Paus. 1. 3, 5; Plin. _N. H._ 36. 17; Aesch. 1. 60; Diog. Laert. 6. 2, 3; _Epistol. Gr._ p. 239; Photius and Suidas _s. v._ [GREEK]).
 
 So it is not strange that the Samothracian goddess closely approximates the form of Cybele, and that we find the Amazons consecrating this island to the Mother of the Gods.* But there is room for much conjecture concerning the meaning of the connection between the Amazons and the deity of Samothrace.* It is probable that there is some bearing on this in the legend of the settlement of Samothrace recorded by Pausanias.* This tells that the people of Samos, driven out by Androclus and the Ephesians, fled to this island, and named it Samothrace in place of the older name, Dardania. The charge which Androclus had brought against the Samian exiles was that they had joined the Carians in plotting against the Ionians. It would appear then that these colonists of Samothrace were bound by strong ties, probably of blood, to the pre-Ionic population of Ephesus and its environs, by whom the shrine of Ephesian Artemis was founded, a shrine indissolubly connected with the Amazon tradition.* With these facts must be considered the opinion of Herodotus that the Samothracian mysteries were of Pelasgian origin.
 
+*) Diod. Sic. 3. 55.
+
+*) Kern holds (_Arch. Anz._ 1893, p. 130) that in the statement of Diodorus there is no proved connection between the Amazons and the mysteries of Samothrace.
+
+*) Paus. 7. 4, 3.
+
+*) Cf. ch. 3 on _Ephesian Artemis_.
+
 In Samothrace there were also Corybantic rites of Hecate. These were performed in the Zerynthian cave,* from which Apollo and Artemis derived an epithet.* The sacrifice of dogs to Hecate held a prominent place in these mysteries. This sacrifidal rite is so infrequent in Greek religion that it commands special attention wherever it is found. The Corybantic rites of Samothrace show that Hecate of this place was closely akin to the goddess of the same name, who was worshipped with Zeus Panamerius at Lagina in Caria, the chief centre of her cult in Asia Minor.* Strabo* classes her cult as Phrygian-Thracian. Farnell* comments on the close connection between Artemis Pheraea of Thessaly and this Hecate and suggests Thrace as the home of the cult. Some supporting evidence for this opinion may be obtained by comparing with the statement that dogs were offered to Hecate in Samothrace a remark of Sextus Empiricus,* that the Thracians used this animal for food.
+
+*) Schol. Aristoph. _Pax_, 276.
+
+*) Ovid, _Trist._ 1, _el._ 9. 19; liv. 38. 41.
+
+*) _V. supra_, n. 77.
+
+*) Strabo, p. 473. _Cf._ rites of Artemis-Hecate, _Orph. Argon._ 905.
+
+*) Farnell, _op. cit._ 2. pp. 504 ff.
+
+*) Sext. Empir. (Bekker), 174.
 
 In Lemnos there were similar Corybantic rites in honour of Bendis, who is thus brought into relationship with Samothracian Cybele and her reflex Hecate, as well as with Cretan Rhea.* This "Great Goddess" of Lemnos is Thracian Bendis, the fierce huntress of the two spears and the double worship, "of the heavens and of the earth," who received human sacrifice in her own country.* She entered the Greek pantheon as Thracian Artemis, closely allied to Cybele and Hecate. She has a counterpart in [GREEK], from whom the Thracian Bosphorus was named, a goddess in whose rites the torch has a conspicuous place.*
 
+*) Strabo, p. 466: [GREEK] (referring to the Corybantic rites of Crete) [GREEK].
+
+*) Hesych. _s. v._ [GREEK].
+
+*) Schol. Plato, _Republic_, 327. _Cf._ Mommsen, _Heort._ p. 488.
+
 Thus a long list may be made out of female deities who show the general characteristics of Phrygian Cybele: the Lydian Mother, Cybebe or Cybele; Rhea of Crete; Hecate of Samothrace and Lagina; Bendis of Thrace and Lemnos; Cappadocian Mâ;* Britomartis, or Dictynna, of Crete, who is Aphaea at Aegina;* the Syrian goddess of Hierapolis;* several forms of Artemis, --- of the Tauric Chersonese, of Brauron, of Laodicea,* of Ephesus,* Artemis-Aphrodite of Persia.* The conception common to all these is that of a nature-goddess, whose rites are orgiastic, and whose protection, as that of a woman-warrior, is claimed for the state. It is probably correct to assume that Artemis Tauropolos, to whom Diodorus* says that the Amazons offered sacrifice, is a form of Cybele, presumably Tauric Artemis. Therefore this name should be added to the list. It deserves special prominence, because the Amazons are shown to have been her votaries. In connection with Aphrodite, who, like Artemis, although less frequently, was identified with the Mother, Arnobius* relates that in a frenzy of devotion to this deity the daughter of a Gallus cut off her breasts, a story strikingly reminiscent of the tradition of single-breasted Amazons, and also suggestive of the fact that there were Galli in certain forms of Aphrodite's worship.*
+
+*) An inscription from Byzantium (Mordtmann u. Déthier, _Epig. v. Byz._ Taf. 6-8) reads: [GREEK]. _Cf._ Steph. Byz. _s. v._ [GREEK]; Strabo, pp. 535, 537; Pans. 3. 16, 8; Dio Cass. 36B. _Cf._ article by J. H. Wright, _Harv. Studies in Class. Philol._ 6. 64, on the worship of Mâ; [GREEK].
+
+*) Paus. 2. 30, 3.
+
+*) Pseudo-Lucian, _De Dea Syria_. The torch belonged to her festival (_op. cit._ 49).
+
+*) Pausanias (3. 16, 8) identifies Artemis Taurica, Artemis Brauronia, and the goddess of Laodicea in Syria. He also says that the original image of this cult was claimed by the Laodiceans, the Cappadocians, the neighbours of the latter on the borders of the Euxine, the Lydians --- who called it _Anaiitis_ ---, the Spartans --- who called it _Orthia_.
+
+*) _Cf._ ch. 3, _Ephesian Artemis_.
+
+*) Paus. 7. 6, 6.
+
+*) Diod. Sic. 2. 46.
+
+*) Arnob. _Adv. Nat._ 5. 7.
+
+*) This comes out strongly in the rites at Bambyce. _V. supra_, n. 77.
 
 The cult of Cybele seems to have been an indigenous religion in Phrygia and Lydia,* duplicated in almost all its essential details by that of Cretan Rhea. Since the Cretan rites of the Mother, in all probability, belonged originally to the Eteo-cretan population of the island, a non-Hellenic folk apparently, who seem to have been akin to the Asiatic folk not far away,* Rhea-Cybele may fairly be regarded as the deity of a common stock in Crete, Phrygia, and Lydia. From the circumstance that the double-axe is a religious symbol which occurs frequently wherever there are remains of the pre-Hellenic, or "Minoan," civilisation of Crete and of that thence derived, the "Mycenaean," and from the fact that in historic times this appears as the regular symbol of various forms of the Asiatic Mother,* there is ground for the inference that the stock with whom the worship of Rhea-Cybele was deeply rooted was that which predominated in Crete and the other lands where the same brilliant culture flourished before the rise of the Hellenic states. It is to be noted that the battle-axe of the Amazons is this very weapon, but the point may not be pressed in this context. Herodotus,* it has been seen, asserted out of his knowledge as an initiate, that the mysteries of Samothrace were of Pelasgic origin. He undoubtedly conceived of the Pelasgians as a non-Hellenic race who preceded the Hellenes in the occupation of Greece, and therefore we must interpret his remarks about the _Cabiria_ as meaning that these rites were instituted by a pre-Hellenic people.* It is tempting to identify this people with the pre-Ionic inhabitants of Samos, who, according to Pausanias,* settled Samothrace. Thus the worshippers of Cybele in Samothrace would be shown to be akin to the stock who honoured her in Crete,* Lydia, and Phrygia.
 
+*) _Cf._ Strabo, 10. pp. 469, 472; 12. p. 567, wherein the names associated with the cult are traced to Phrygian localities. Diod. Sic. (3. 58) derives the name of the goddess from a place in Phrygia. On Cybele in Lydia _cf._ Herod. 5. 102; Paus. 7. 17, 9-10.
+
+*) Strabo, 10. p. 478. _V. supra_, n. 79.
+
+*) Klügmann, _op. cit._ p. 529.
+
+*) Herod. 2. 51.
+
+*) For the views of Herodotus on the Pelasgi _cf._ 2. 56-58; 7. 94: 8. 44. J. L. Myres has an important article, "The History of the Pelasgian Theory," in _Journ. Hellen. Studies_, 27 (1907).
+
+*) Paus. 7. 4, 3.
+
+*) The central point of the mysteries of Samothrace seems to have been the worship of Demeter as the mother of Plutus. It is interesting to note that this son was born in Crete (Hes. _Theog._ 970).
+
 This Mother, whose worship was widely spread under her own name and many others, was revered by the Amazons:--- in the primitive baetylic form of the rites of Pessinus; as Mother of the Gods in Samothrace, where she was identified both with Cabiric Demeter and with Hecate; as Artemis Tauropolos, or the Tauric Virgin, who was probably a goddess of the Thracians.*
+
+*) _Cf._ Herod. 4. 103 and the conception of the goddess on which Euripides builds his _Iphigeneia among the Taurians_. Possibly the word [GREEK] is to be connected with _Taurobolium_, the mystic baptism in blood, which was originally connected with Syrian cults, especially with that of Mithras. In the first half of the second century A. D. it was introduced at Rome as a feature of the worship of _Magna Mater_. On the _Taurobolia_ and the similar _Criobolia_ _cf._ Prudent. _Peristeph._ 10. 1011-1050.
 
 # Chapter 3 --- Ephesian Artemis.
 
 The magnificent temple of which Christian writers speak as that of "the great goddess whom all Asia and the world worshippeth" replaced the earlier and more famous shrine which burned to the ground on the night of Alexander's birth. Two hundred and twenty years had been spent in the process of building the first temple, and when this was destroyed the Ephesians at once began the construction of another even more costly.* The older Artemisium is said to have possessed among its treasures four statues of Amazons executed by four of the most distinguished sculptors of the fifth centiury, Phidias, Polyclitus, Cresilas, and Phradmon.* The tradition is only one of many which indicate very close connection between the Amazons and this sanctuary.
 
+*) On the history of the Artemisium _cf._ Plin. _N. H._ 36. 14; Mela, 1. 17; Ptol. 5; Plut. _Alex._
+
+*) This is Pliny's story (_N. H._ 34. 53). Students of Greek art are not unanimous in believing that four statues were executed. For a well arranged bibliography on the question _cf._ Overbeck, _Gesch. d. griech. Plastik_, 1. pp. 514 ff. and Notes, p. 527.
+
 The Ephesians themselves looked upon their Artemisium as one of the most sacred spots in the whole world. Tacitus* remarks: "Primi omnium Ephesii adiere, memorantes non, ut vulgus crederat, Dianam atque Apollinem Delo genitos: esse apud se Cenchrium amnem, lucum Ortygiam, ubi Latonam partu gravidam et oleae, quae tum etiam maneat, adnisam, edidisse ea numina." This seems to mean that the olive of Ephesian Artemis was set up against the palm of Delian Apollo. Something of this kind happened historically, as Thucydides* shows: "There was of old a great gathering of the Ionians at Delos... They went thither to the theoric assembly with their wives and children, just as the Ionians now gather at the _Ephesia_."
+
+*) Tac. _Annales_, 3. 61.
+
+*) Thuc. 3. 104.
 
 Greek Ephesus owed its origin to the Ionic Immigration and was reckoned among the twelve cities of Ionia, yet in the band of colonists who started out from the Prytaneum at Athens the Ionians were few, although the expedition is designated by their name. Joined with them were the Abantes of Euboea, the Orchomenian Minyae and the Cadmeans of Boeotia, the Dryopes, Phocians, Molossians, the Arcadian Pelasgians, the Dorian Epidaurians, and other tribes whom Herodotus does not mention by name.* It may be that the Ionian strain was less strong at Ephesus than in some of the other cities of the group, since this place and Colophon were the only ones of the twelve that did not take part at the _Apaturia_, the great clan festival of the Ionians.* Yet the Codrids, who figured prominently as conductors of the undertaking, were Ionians,* and Androclus, son of Codrus himself, was by some* believed to have been the founder of Ephesus. Pausanias was told that he fell in battle against the Carians and was shown his tomb at Ephesus.*
 
+*) Herod. 1. 142, 146. _Cf._ Paus. 7. 2, 1-4.
+
+*) Herod. 1. 147. On the _Apaturia cf._ Ephor. _ap._ Harpocr. _s. v._; Strabo, 9. p. 393.
+
+*) The Codrids were refugees who sought shelter at Athens, having been driven out of the Peloponnese by the Dorians (Paus. 7. 1, 9).
+
+*) Strabo, 12 and 14. _Cf._ Paus. 7. 2, 6 ff.
+
+*) Paus. 7. 2, 9.
+
 Pausanias* represents Androclus, whom he calls "king of the Ionians who sailed to Ephesus," the founder of the Ionic city, but he believes the shrine of Artemis there to be very ancient. He states with certainty that it antedated the Ionic Immigration by many years, being older even than the oracular shrine of Apollo at Didymi. He attributes its establishment to autochthons, Coresus,* who was son of Cayster and Ephesus. He says that the pre-Ionic inhabitants of the city were Leleges and Lydians --- with a predominance of the latter --- and that although Androdus drove out of the land all those whom he found in the upper city, he did not interfere with those who dwelt about the sanctuary. By giving and receiving pledges he put these on a footing of neutrality. These remarks of Pausanias find confirmation in the form of the cult in historic times, which, being in all its essentials non-Hellenic, admits of plausible interpretation only as an indigenous worship taken over by the Greek settlers.
 
+*) Paus. 7. 2, 6-8.
+
+*) Herodotus (5. 100) gives Coressus as a place-name in Ephesus.
+
 The Artemisium at Ephesus was pre-eminently a shrine which gave rights of sanctuary to suppliants, a fact indicative of a wide difference between this goddess and the Greek Artemis.* Those who invoked the protection of the sanctuary appeared with olive-boughs twined with fillets of wool.*
+
+*) [GREEK] (Strabo, p. 641). The shrine of Aphrodite _Stratonikis_ at Smyrna was also a place of asylum. Neither Aphrodite nor Artemis appears in such capacity in purely Hellenic cults.
+
+*) _Et. Mag._ 402. 20.
 
 The Amazons are noticed in legend as founders of the shrine and as fugitives claiming its asylum. Pindar* told that they established the sanctuary on their way to Athens to war against Theseus. Possibly this is the account followed by Callimachus* in the lines telling how the Amazons set up the [GREEK] of Artemis "in the shade of an oak with goodly trunk* which grew in Ephesus by the sea." Justin* states the tradition that the city itself was founded by the Amazons. Pausanias* maintains that Pindar was incorrect in his assertion that the shrine was founded by the Amazons. He says that long before they started on their Attic campaign they had twice taken refuge at the Artemisium, once from Heracles, and, earlier still, from Dionysus. Tacitus,* continuing his quotation of claims put forward by the Ephesians themselves, says: "Mox Liberum patrem, bello victorem, supplicibus Amazonum, quae aram insederant, ignovisse. Auctam hinc concessu Herculis, cum Lydia poteretur, caerimoniam templo." According to this the Amazons inaugurated the custom of seeking asylum at the Artemisium, and to them therefore was due the conspicuous part which the shrine played as a place of sanctuary. It is reasonable to infer from these various sources that in the holy records and traditions of the Ephesian temple the Amazons were prominent. Even Pausanias, who denies that the Amazons founded the shrine, ascribes to their fame, since they were _reported_ its founders, a large measure of the prestige which belonged to the cult of Ephesian Artemis all over the Greek world. He mentions this first in his list of reasons for the great reputation of the shrine, placing it on a par with the extreme antiquity of the sanctuary. Secondary to these two he mentions the wealth and influence of the city and the epiphany of the goddess there.* We must, indeed, believe that the Amazons stood in intimate relation to the cult of Ephesian Artemis. Yet in historical times there was a regulation which forbade women to enter the sanctuary.*
 
