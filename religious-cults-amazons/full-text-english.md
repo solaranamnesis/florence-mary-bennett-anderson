@@ -418,15 +418,103 @@ The Artemisium at Ephesus was pre-eminently a shrine which gave rights of sanctu
 
 The Amazons are noticed in legend as founders of the shrine and as fugitives claiming its asylum. Pindar* told that they established the sanctuary on their way to Athens to war against Theseus. Possibly this is the account followed by Callimachus* in the lines telling how the Amazons set up the [GREEK] of Artemis "in the shade of an oak with goodly trunk* which grew in Ephesus by the sea." Justin* states the tradition that the city itself was founded by the Amazons. Pausanias* maintains that Pindar was incorrect in his assertion that the shrine was founded by the Amazons. He says that long before they started on their Attic campaign they had twice taken refuge at the Artemisium, once from Heracles, and, earlier still, from Dionysus. Tacitus,* continuing his quotation of claims put forward by the Ephesians themselves, says: "Mox Liberum patrem, bello victorem, supplicibus Amazonum, quae aram insederant, ignovisse. Auctam hinc concessu Herculis, cum Lydia poteretur, caerimoniam templo." According to this the Amazons inaugurated the custom of seeking asylum at the Artemisium, and to them therefore was due the conspicuous part which the shrine played as a place of sanctuary. It is reasonable to infer from these various sources that in the holy records and traditions of the Ephesian temple the Amazons were prominent. Even Pausanias, who denies that the Amazons founded the shrine, ascribes to their fame, since they were _reported_ its founders, a large measure of the prestige which belonged to the cult of Ephesian Artemis all over the Greek world. He mentions this first in his list of reasons for the great reputation of the shrine, placing it on a par with the extreme antiquity of the sanctuary. Secondary to these two he mentions the wealth and influence of the city and the epiphany of the goddess there.* We must, indeed, believe that the Amazons stood in intimate relation to the cult of Ephesian Artemis. Yet in historical times there was a regulation which forbade women to enter the sanctuary.*
 
+*) Pind. _ap._ Paus. 7. 2, 7.
+
+*) Callim. _in Dian._ 237 ff.
+
+*) The Greek is [GREEK]. The words hardly bear Farnell's construction (_op. cit._ 2. p. 482), "_in the trunk of a tree._"
+
+*) Just. 2. 4. So also Hyg. _Fab._ 237. _Cf._ St. Basil (_s. v._ [GREEK]) and Eust, (_ad_ Dion. 823), who give [GREEK] as daughter of Ephesus and mother of the Amazons. _Cf._ Cram. _A. O._ 1. 80.
+
+*) Paus. 7, 2, 7-8.
+
+*) Tac. _l. c._ (Ann. 3. 61).
+
+*) Paus. 4. 31, 8.
+
+*) Artemid. _Oneirocr._ 4. 4. _Cf._, however, Aristoph. _Nub._ 599-600.
+
 Apart from her name it would be difficult to recognise the Greek Artemis in the deity of Ephesus. The cult statue showed her in form at once primitive and Oriental.* It was carved out of a block of wood,* shaped like a herm in the lower part, showing the feet. The torso was that of a woman of many breasts. The type depicted on coins* is that of a draped woman of many breasts, wearing a turret-crown on her head and resting either arm on a twisted column. She was served by eunuch priests, called Megabyzi, and by maidens. Presumably these priests are the same as the Essenes, whom Pausanias mentions as servitors for one year, who were bound by strict rules of chastity and required to submit to ascetic regulations of dietary and ablution.* The virgins associated with them passed through three stages: Postulant, Priestess, Past-Priestess.* There is nothing to indicate the length of their term of service. The Megabyzi were held in the highest possible honour,* as were the Galli at Pessinus.
+
+*) On the statue _cf._ Aristoph. _Nub._ 590; Aelian, _Hist. Animal._ 12. 9; Strabo. 12. p. 534; 13. p. 650; Autocrates, _Tympanistis_.
+
+*) The wood was variously described, as beech, cedar, elm, ebony, grape.
+
+*) _V._ coins of Ephesus, Head, _Hist. Num._
+
+*) On the Essenes _cf._ Paus. 8. 13, 1, where their rule of life is compared to that of the servitors of Artemis Hymnia at Orchomenus in Arcadia. The _Talmud_ mentions a sect called Essenes, noted for their asceticism.
+
+*) Plut. _An Sen. sit ger. Resp._ p. 795D. The words are [GREEK].
+
+*) The word Megabyzus occurs frequently in Herodotus as a proper name among the Persians. Herod. 3. 70, 81, 82, 153, 160; 4. 43; 7. 82, 121. This is probably the basis of Farnell's statement (_op. cit._ 2. p. 481), that the use of the word at Ephesus points to Persian influence, which, according to Plutarch (_Lys._ 3) was strong here. _Cf._ Fairbanks, _Greek Religion_, App. 1. Strabo, p. 641.
 
 This goddess of the turret-crown and of many breasts, whose shrine required the attendance of the Megabyzi, is certainly a form of Cybele. If we were guided solely by the remark of Pausanias* that the sanctuary was founded by the pre-Ionic people of the region, that is, by Leleges and Lydians, among whom the latter were more numerous, we should expect to find the Lydian Mother worshipped here. The name Artemis, under which the goddess appears, indicates that the Greek colonists appropriated the cult which they found. The Lydian Mother was evidently identical with _Magna Mater_ of Phrygia. Yet the Ephesian goddess, who is the Mother under the name Artemis, is in her cult image neither Cybele as we know her --- whether under baetylic form or in the likeness of a matron* --- nor Hellenic Artemis. Artemidorus,* the student of dreams, says that peculiar sanctity attached to a particular type which he defines as that of Artemis Ephesia, Artemis of Perge, and the goddess called Eleuthera among the Lycians. It is tempting to ascribe to the mysterious Leleges the differences which separate the type of Ephesia and the other two from Cybele.
 
+*) Paus. 7. 2, 7-8.
+
+*) Apart from the baetyl of Pessinus Cybele was regularly conceived as a beautiful matron. _Cf._ statue in Metroüm at Athens. For references _v. supra_, n. 105.
+
+*) Artem. _Oneirocr._ 2. 35.
+
 All that Pausanias* tells about these Leleges at Ephesus is that they were a branch of the Carians. Herodotus* says that the Leleges were a people who in old times dwelt in the islands of the Aegean and were subject to Minos of Crete; that they were driven from their homes by the Dorians and Ionians, after which they took refuge in Caria and were named Carians. It seems reasonable to give weight to the remarks of Herodotus on this subject, since he was a Carian-born Ionian. We should infer then that the Leleges of Ephesus, whom Pausanias calls a branch of the Carians, were closely connected with the island-people who were once subject to Minos. Both Herodotus* and Pausanias* say that the Lycians were of Cretan origin. It is therefore not strange that at Ephesus and in Lycia the same type of goddess was worshipped. Tradition* also connected Pamphylia with Crete, which may account for the presence of the type in Perge.* An inscription* which dates probably from about the third century B. C. gives direct evidence of association between Crete and Ephesian Artemis. It is the dedication of a votive offering: "To the Healer of diseases, to Apollo, Giver of Light to mortals, Eutyches has set up in votive offering (a statue of) the Cretan Lady of Ephesus, the Light-Bearer ([GREEK])." The inscription suggests the words from the _Oedipus Rex_:* "Lyceian Lord, scatter, I pray thee, for our aid thine unconquerable darts from thy gold-twisted bowstring and with them the fire-bearing rays of Artemis with which she rusheth over the Lycian mountains." The Cretan Light-Bearer may easily be the fire-bearing Artemis of Lycia. The epithet [GREEK] used of Apollo gives the form [GREEK] for Artemis. An Artemis by this name was worshipped at Troezen.* The local exegetes were unable to explain the application of the epithet. Therefore Pausanias conjectures that it means, either that Hippolytus had thus commemorated the extermination of wolves at Troezen, or that [GREEK] was a cult epithet among the Amazons, to whom Hippolytus was akin through his mother. It seems highly probable that Artemis [GREEK] was the goddess of Ephesus, Perge, and Lycia, who was known as the Cretan Lady of Ephesus.
+
+*) Paus. 7. 2. 8. 
+
+*) Herod. 1. 171. The theory stated here is certainly that which Herodotus himself holds. He says that it was the Cretans' story that the Carians claimed to be autochthonous. Their tradition emphasised their kinship with the Lydians and Mysians.
+
+*) Herod. 1. 173.
+
+*) Paus. 7. 3, 7.
+
+*) The older name of Pamphylia was Mopsopia. _Cf._ stories of Mopsus, son of Cretan Rhacius, Paus. 7. 3, 2. _Cf._ Mela, 1; Plin. 5. 26.
+
+*) On the yearly feast of Artemis Pergaea and her mendicant priests, suggestive of those of Cybele, _v._ Farnell, _op. cit._ 2. p. 482.
+
+*) _C. I. G._ 6797.
+
+*) Soph. _Oed. R._ 204-208.
+
+*) Paus. 2. 31, 4-5.
 
 Eleuthera, the special name by which this Artemis was worshipped among the Lycians suggests Ariadne, whom Ovid* calls _Libera_.* The name belongs to her as the wife of Dionysus in Crete. Dionysus appears in the legends of the Artemisium as one of the foes of the Amazons who drove them to this asylum.* Perhaps the idea of hostility on his part is to be explained by the rites in his honour at the annual festival of the _Scierea_ at Alea. These required that women should be scourged at his altar.* In this there is reminiscence of the Egyptian mournings for Osiris, which were marked with practices of self-affliction, and Osiris suggests Atys, the companion of the Asiatic Mother.* There is no reason to doubt that Dionysus was closely connected with Cybele. The musical system by which his worship was characterised was Phrygian,* and Euripides in the _Bacchae_ completely identifies his rites with those of the Mother. We hear also of men who marched in procession at his festivals with cymbals and tambourines.* Considering the fact that at Ephesus and at Pessinus there were eunuch priests, also that Euripides* depicts Dionysus as a womanish person who forces Pentheus to assume woman's garments, that elsewhere* the god is called man and woman, and, in addition to this, that there was a legend* that he received woman's attire from Rhea at Cybela, there is a strong presumption in favour of the hypothesis that Dionysus touches the cult of the Great Mother and that of Ephesian Artemis in some way associated with the strange Oriental idea of confusion of sex.* If this interpretation is correct, it probably applies also to the rites of Ariadne, for at Athens in the feast of the _Oschophoria_ two youths dressed as women conducted a chorus in honour of Dionysus and Ariadne.*
 
+*) Ovid, _Fasti_, 3. 513.
+
+*) Cicero (_Verr._ 4. 48) uses _Libera_ as the name of Proserpine. This doubtless is due to the close relation between Demeter and Dionysus.
+
+*) In addition to the passages already cited (Pans. 7. 2, 7-8; Tac. _Ann._ 3. 61) _v._ Plut. _Quaest. Gr._ 56. The story of Dionysus and the Amazons appears also in art. _Cf. Arch. Ztg._ 1845, pl. 30, showing sarcophagus from Cortona.
+
+*) Paus. 8. 23, 1. The chief temples of the place as described by Pausanias were of Artemis Ephesia, of Athena Alea, or Hippia (_cf._ Paus. 8. 47, 1), of Dionysus. Possibly the flagellation of women in the Dionysiac mysteries is represented on some frescoes recently discovered in a Roman mansion near Pompeii (Nation, Dec. 1, 1910, p. 534). _V. Am. Jour. Arch._ 15 (1911), p. 567.
+
+*) Farnell believes that Ariadne was originally a Cretan goddess, who may easily have been identified with Cybele, Bendis, _etc._ (_op. cit._ 2. p. 473). Possibly the legend of Dionysus and Ariadne grew out of the Cretan cult in which he was her _paredros_.
+
+*) Aristot. _Polit._ 8. 7, 9; Eur. _Bacch._ 58.
+
+*) Herod. 4. 79; Athenaeus, 10. p. 445.
+
+*) Eur. _Bacch._ 821 ff.
+
+*) Aristid. _Or._ 4. p. 28; Aeschyl. Fr. _Edoni ap._ Aristoph. _Thesm._ 135.
+
+*) Apollod. 3. 5, 1.
+
+*) _Cf._ Atys as _notha mulier_, Catull. _Atys_, 27; Adonis, male and female, _Orph. Hymn._ 56.
+
+*) Plut. _Thes._ 23. On the rites of Ariadne-Aphrodite at Amathus _v._ Farnell, _op. cit._ 2. p. 634. Possibly some connection with Dionysus is implied in the strange epithet of Ephesian Artemis, [GREEK], Hesych. _s. v._
+
 The Ephesian legend of Heracles and the Amazons* probably indicates a connection between the cult of Ephesian Artemis and that of the Lydian Heracles. This cult of Heracles is reflected in Greek legend as the adventure of the hero at the court of Omphale. The story runs thus:* Heracles was compelled to submit to slavery to this Lydian queen in order that he might recover from the madness which punished him for his murder of Eurytus. Omphale, who was daughter of Dardanus and widow of Tmolus, became enamoured of her captive and married him. He gave up to her his weapons and received in return woman's dress and the distaff. He is represented sitting among the maidens and allowing the queen to beat him with her sandals whenever he has erred in spinning. The names Dardanus and Tmolus suggest, the former, Mount Ida and Samothrace, the latter, Lydia. It is noteworthy that Pausanias* identifies this Oriental Heracles with the Idaean Dactyl of that name. Omphale is presumably _Magna Mater_, and probably the detail of the gift of the weapons* to her points to the fact that this goddess was warlike and political in Asia Minor. In this legend, as also in that which connects the Amazons with Dionysus, there appears the peculiar Asiatic idea of sex-confusion.* Granted a close connection between the Oriental Heracles and the Amazons at Ephesus,* the supposition does not seem audacious that the most widely spread of all the Hellenic traditions concerning the Amazons, that of the attack by Heracles on Themiscyra, owed its origin to a cult saga typified by that of Ephesus.
+
+*) Paus. _l. c._ (7. 2, 7-8); Tac. _l. c._ (3. 61).
+
+*) Ovid, _Fasti_, 2. 305 ff.; Apollod. 1. 9; 2. 7; Diod. Sic. 4; Prop. 3. 11, 17.
+
+*) _V. supra_, n. 95.
+
+*) The battle-axe receives special mention. _Cf._ double-axe of the Amazons.
+
+*) In a work now out of date (the _Lydiaca_ of Th. Mencke, Berlin, 1843) there is valuable information on this subject. _V._ especially ch. 8. p. 22.
+
+*) The words of Tacitus (_l. c._) representing the tradition at Ephesus itself, are very important: "_Auctam hinc concessu Herculis, cum Lydia poteretur caerimoniam templo_." Heraclides Ponticus (Fr. 34), supposing [GREEK] and [GREEK] to be etymologically akin, derives the name of the city from the attack which Heracles made on the Amazons from Mycale to Pitane.
 
 To summarise: There was close connection between the Amazons and Ephesian Artemis, a type of the Mother showing Cretan-Lycian affiliations. Their place in the cult gave rise to the two local sagas which emphasise the Oriental idea of sex-confusion.
 
@@ -434,21 +522,99 @@ To summarise: There was close connection between the Amazons and Ephesian Artemi
 
 Pausanias* says that there were two ways of accounting for the name of the town Pyrrhichus in southern Greece. One derived it from Pyrrhus, son of Achilles, the other, from Pyrrhichus, a god of "the so-called Curetes." There was also a local story that the town was settled by Silenus from Malea. Pausanias adds that the people about Malea explained how Silenus came to be called Pyrrhichus also, but he does not give the explanation. He concludes his remarks about the town with these words: "In the market-place there is a well of water which they believe was given to them by Silenus. There would be a dearth of water, if this well should fail. The gods who have sanctuaries in their land are Artemis, surnamed Astrateia, because the Amazons here ceased their forward march, and Apollo Amazonius. The statues are both _xoana_, and they say that they were set up by the women from the Thermodon."
 
+*) Paus. 3. 25, 1-3. Pausanias quotes Pindar on Silenus, "the zealous beater of the ground in the dance."
+
 Thus the sole mention of these two cult-epithets, presumably of great value to the investigator of the Amazon tradition, occurs in a passage which offers no help toward understanding them and in a puzzling context. It is strange to hear of the Amazons in Laconia, a canton in no way associated with the stock tale, as we know it, of the invasion of Attica. The few words in Pausanias suggest that the legend at Pyrrhichus told of the halting of a large army. In this it would differ from the Boeotian tradition* of a small band of Amazons separated from the rest in their rout by Theseus. There is no mention of a goal, whether Athens or Troezen, toward which the army that halted in Laconia were directing their campaign.
+
+*) Paus. 1. 41, 7.
 
 It seems natural to name Apollo and Artemis together, yet the Artemis of Ephesus, with whom the Amazons were closely associated, and Artemis Tauropolos, also mentioned as a goddess whom they worshipped, are in no way like the companion of the Hellenic Apollo. The obvious course of reasoning is to assume that Astrateia is the Asiatic Artemis and that, therefore, Apollo Amazonius is fundamentally a non-Hellenic god.
 
 Although Apollo is pre-eminently a Greek divinity, the same name was used of a god worshipped in the Troad before the times of the earliest Aeolic colonisation. The only attributes of this deity, whose epithet was Smintheus, were the bow and the gift of prophecy.* Throughout the _Iliad_ Apollo appears as a Trojan rather than a Greek ally, a fact not without significance to this inquiry. Cicero* mentions three gods called Apollo: the son of Hephaestus and Athena, the son of Corybas, and the son of Zeus and Leto. Of the second, who would seem to belong to cults related to that of the Mother, it was said that he was born in Crete, and that he contended with Zeus himself for the possession of the island. He is elsewhere called a son of Corybas, but this is the only reference to his struggle with Zeus.* This Apollo might appropriately be paired with an Artemis of the type of Ephesia. The sole hint at a ritual relation between Artemis and Apollo at Ephesus is in the inscription quoted above,* which records the dedication of a statue of "the Cretan Lady of Epheaus, the Light-Bearer" to Apollo, "Healer of diseases and Giver of Light to mortals." It was found to be not improbable that the Cretan Lady was the goddess whom the Lycians worshiped imder the type of Ephesia, and to whom as [GREEK] Hippolytus dedicated a temple at Troezen. Sophocles* emphasises the bow as the attribute of Apollo [GREEK], the companion of Artemis of Lycia. With this should be considered the fact that Apollo had three oracular shrines in Asia Minor, --- at Branchidae, Clarus, and Patara in Lycia. Then the gift of prophecy as well as the bow, the two attributes of Apollo Smintheus may both be assigned to the Lycian Apollo. The hypothesis may be stated: that the Phrygian-Lycian Apollo, dosely allied to Artemis [GREEK], the Lycian type of Ephesia, is Apollo Amazonius. The theory tends to reconcile two conflicting statements, the one that of Pindar,* who represents Apollo as friendly to the Amazons, the other that of Macrobius,* who tells that he assisted Theseus and Heracles against them. Apollo, conceived as the Hellenic god, would naturally be their enemy, while the Asiatic Apollo would be their patron. It is possible to explain in the same way the seeming inconsistency shown in representing the defeat of the Amazons on the walls of the temple at Bassae.
 
+*) _Iliad_, 1. 38-39, and schol. _ad l._; _ibid._ 451; Steph. Byz. _s. v._ [GREEK]; Paus. 10. 12, 1-6. Pausanias (_l. c._) gives an account of the Sibyl Herophile, conceived to have been the second who filled the office at Delphi. The god whom she served was evidently identified with Smintheus. Herophile was called in some epic sources Artemis, in others, the wife of Apollo, in others, his daughter or a sister other than Artemis. She seems to have been in some way connected with Trojan Ida.
+
+*) Cicero, _De Natura Deorum_, 3. 57.
+
+*) _Cf._ Hoeck, _Kreta_, 3. p. 146.
+
+*) P. 36.
+
+*) Soph. _l. c._ (_Oed. R._ 204 ff.). The date of Sophocles in the best Greek period gives the passage special importance.
+
+*) Pind. _Ol._ 8. 47.
+
+*) Macr. _Saturn._ 1. 17-18.
+
 It has been assumed in the preceding paragraph that Artemis Astrateia, because she is a goddess of the Amazons, is practically identical with Ephesia, and on this assumption an hypothetical interpretation of Apollo Amazonius has been based. In order that the investigation may be pursued from a different point of view, this argument may be dismissed for the present, to give place to an inquiry concerning the meaning of Astrateia. Farnell* does not discuss the epithet Amazonius, but for Astrateia he proposes the explanation that the word is a linguistic corruption for Astarte. By this theory the connection with a [GREEK] denotes only a local attempt to account for a word of which the real significance was completely lost. The position of Pyrrhichus on the Laconian coast makes it easily credible that foreign influences might have imported the Semitic goddess. As the theory is put forward tentatively, details are not elaborated, and so it is not stated whether there is any reason other than caprice for connecting the Amazons, rather than another army, with the imaginary [GREEK]. Rouse* accepts the statement of Pausanias as it stands and renders the phrase "Artemis of the War-host."
+
+*) Farnell, _op. cit._ 2. p. 485. Elsewhere (2. p. 473) Farnell speaks of the identification between Artemis and the Semitic goddesses, Astarte, Derceto, Atargatis.
+
+*) Rouse, _Greek Votive Offerings_, p. 119.
 
 If Astrateia be "Artemis of the War-host," she was presumably an armed goddess. Pausanias* records that there was a statue of Artemis in Messenia bearing shield and spear. At Laodicea there was the conception of an armed Artemis, as shown by coins, and since the Laodiceans claimed to possess the original cult statue of the Brauronian goddess,* who was identified with the Tauric Virgin,* there is reason to believe that these two types of Artemis, Brauronia and Taurica, depicted her as an armed goddess. Furthermore, Artemis appears as a goddess of battle in her cult as Agrotera, for she regularly received sacrifice from the Spartans before a compaign or a battle;* at Athens the polemarch, assisted by the ephebes, in commemoration of Marathon sacrificed annually to her in conjunction with Enyalius;* and at Aegaera in Achaea she was believed to have routed the Sicyonians by telling the people of Aegaera to bind torches to the horns of a flock of goats in order to terrify the enemy.* Artemis Laphria, a Calydonian deity, is possibly also a goddess of war. She is pre-eminently a huntress, and in this respect might resemble Thracian Bendis, who entered the Greek pantheon as Artemis. Pausanias* seems to hint that the type of Laphria is related to that of Ephesia. Ephesia and Bendis both are forms of the Mother, who in Asia was warlike.*
 
+*) Paus. 4. 13, 1.
+
+*) Paus. 3. 16, 8.
+
+*) Paus. 3. 16, 7-9.
+
+*) Xen. _Hell._ 4. 2, 20.
+
+*) Pollux. 8. 91.
+
+*) Paus. 7. 26. 2-3.
+
+*) Paus. 4. 31, 8.
+
+*) Farnell (_op. cit._ 2. p. 471) suggests that Laphria is derived from [GREEK]. For a coin of Messene, which may represent Laphria, showing a woman huntress with a spear _v._ Imhoof-Blumer and Gardner, _Numism. Comment. on Paus._ p. 67, pl. P3.
+
 But not one of these epithets of warlike Artemis is suggestive of the word Astrateia. The nearest approach to it is in three surnames of Aphrodite, --- Strateia at Mylasa,* Strategis at Paros,* and Stratonikis at Smyrna,* of which the first is startlingly similar to the one under consideration. The only epithet among those used of Artemis which recalls Astrateia is Hegemone.
+
+*) _C. I. G._ 2693.
+
+*) Le Bas, _Îles_, 2062.
+
+*) _C. I. G._ 3137. _Cf._ Tac. _Ann._ 3. 63.
 
 Artemis Hegemone was worshipped at Tegea, at Sparta, and near Acacesium in Arcadia. About her cult at Tegea there is nothing told which would differentiate this from other types.* At Sparta she was worshipped with Eileithyia and Apollo Carneüs in a shrine near the _Dromos_.* Eileithyia seems to have been a primitive goddess, whose worship was pre-Hellenic, and who in classical Greek times was identified with Artemis as helper of women in travail.* The torch was prominent in her ritual. Apollo Carneüs is generally known as the patron of the Dorian race. There are frequent notices of him in ancient literature as the god of the conquering people of Lacedaemon, a warrior who, like Mars at Rome, presides also over the flocks and herds.* Yet Pausanias* tells a story which makes it highly probable that among the pre-Dorian folk of Sparta there was a god of prophecy whose worship was grafted on that of Hellenic Apollo, whence there was formed the type of Carneüs. Pausanias distinguishes between a man named Carneüs and Apollo Carneüs. The former, who was sumamed [GREEK], lived in pre-Dorian Sparta, and was highly honoured in the family of a prophet named Crius. In Dorian times there was a prophet of an Acarnanian family who was killed at Sparta by Hippotes. Apollo therefore was wrathful, and the Dorians exiled the criminal and atoned for the murder. The cult name of Apollo Carneüs was formed from the name of this Acarnanian prophet. It will be observed that in both legends there is mention of prophecy, a fact strongly suggestive of the Phrygian Apollo. Pausanias in this context relates a third story which brings Apollo Carneüs into direct connection with Troy. He tells that when the Greeks were making the wooden horse, they used wood of a cornel-tree ([GREEK]) cut in the sacred grove of Apollo. As soon as they learned that the god was angry at their presumption they propitiated him under the name Carneüs. It seems not unreasonable to infer from these three legends that, although Apollo Carneüs came to be regarded as the Dorians' god, he was in a measure identical with the prophet-god of Phrygia and Lycia. The inference is strengthened by a fourth account in the same context. In this Pausanias quotes Praxilla, who said that Carneüs was from Crete, since he was the son of Europa and Zeus, foster-child of Apollo and Leto. In further support of the theory, here stated tentatively, it should be added that Acarnania, the home of the prophet who was killed at Sparta by the Dorians, was the country of the Curetes, conceived as one of the pre-Hellenic races of Greece.* Their name points to Crete. It must also be said that many believed Eileithyia to be of Cretan origin.* Thus Eileithyia, the third in the group worshipped at Sparta, may have been connected with the cult of the Apollo of Phrygia, Lycia, and Crete. In the shrine of Artemis Hegemone near Acacesium the cult statue showed the goddess with torches in her hands.* This temple gave access to the sanctuary of Despoena,* in which Demeter was worshipped as the mother of Despoena. The cult legend made Artemis the child of Demeter rather than of Leto. Therefore beside the throne of Demeter there was a statue of Artemis, who was represented as a huntress with quiver, hunting dog, and a mantle of stag's skin. In one hand she carried a torch, in the other two serpents. Since the temple of Artemis Hegemone gave access to this shrine, and since in the attribute of the torch the statue in the inner sanctuary resembled that in the outer temple, it seems probable that the Artemis of the Despoena temple was Artemis Hegemone. In this sanctuary the Great Mother was worshipped with Demeter and Despoena, and the initiates heard holy tales about the Titanes,* Curetes, and Corybantes, all of whom were connected with orgiastic rites --- the first, with those of Dionysus, the second and third, with those of Rhea-Cybele. It would follow that Artemis Hegemone belonged to the circle of deities honoured by mystic ceremonies like those of Crete and Asia Minor. Miss Harrison* mentions the torch as a conspicuous feature in the cult of Artemis Hegemone and connects her closely with Hecate who was [GREEK]; on the shores of the Thracian Bosphorus. The identification between Hecate and the Mother has already been noticed.*
 
-The investigation of Hegemone as an epithet would be incomplete without the mention of the use of the word in three other instances: alone, as the name of a goddess; as surname of Aphrodite; in adjectival form [GREEK] as an epithet of Hermes. The first of these shows Hegemone as the name of one of the divinities by whom the Athenian ephebes swore: "Be ye judges of the oath, Agraulus, Enyalius, Ares, Zeus, Thallo, Auxo, Hegemone." Agraulus, Thallo, Auxo, and Hegemone appear to have been old deities of the soil. Pausanias* gives Thallo as one of the two Horae whom the Athenians worshipped with Pandrosus. He gives Auxo and Hegemone as the two Charites who had been revered at Athens from of old ([GREEK]).* The evidence for the worship of Aphrodite Hegemone is an altar basis found on the Acropolis at Athens with the inscription: [GREEK].* Epigraphical evidence also furnishes the epithet Hegemonius with Hermes. The inscription* comes from the site of the Metroüm at the Piraeus, where Atys was worshipped with the Mother, and it is therefore presumable that this Hermes belongs in some way to this Asiatic cult.
+*) Paus. 8. 47, 6.
+
+*) Paus. 3. 14, 6.
+
+*) Cic. _De Nat. Deor._ 2. 27, 68; Paus. 1. 18, 5; 2. 22, 6-7; 7. 23, 5-7; 8. 21, 3. The Orphic Hymn to Artemis confuses her with Eileithyia and Hecate.
+
+*) On the _Carnea_, the chief festival of Sparta, _v._ Herod. 7. 206; 8. 72. This festival commemorated the Dorian conquest. Therefore during its celebration the people remained under arms and lived camp life. The feast was also one of harvest. _Cf._ the Jewish Feast of Tabernacles for a striking parallel. _V._ Mommsen, _Heort._
+
+*) Paus. 3. 13, 3-5.
+
+*) Paus. 8. 24, 9. Apollo is called the patron of the Curetes against the Aetolians, Paus. 10. 31, 3.
+
+*) _V._ references in n. 217.
+
+*) Paus. 8. 37, 1.
+
+*) On the sanctuary of Despoena _v._ Paus. 8. 37, 1 ff.
+
+*) On the Titanes _v._ J. E. Harrison, _British School Annual_, 1908-09, pp. 308-338.
+
+*) Harrison and Verrall, _Myth. and Mons. of Anc. Athens_, p. 383.
+
+*) Ch. 2, _The Great Mother_.
+
+The investigation of Hegemone as an epithet would be incomplete without the mention of the use of the word in three other instances: alone, as the name of a goddess; as surname of Aphrodite; in adjectival form [GREEK] as an epithet of Hermes. The first of these shows Hegemone as the name of one of the divinities by whom the Athenian ephebes swore: "Be ye judges of the oath, Agraulus, Enyalius, Ares, Zeus, Thallo, Auxo, Hegemone."* Agraulus, Thallo, Auxo, and Hegemone appear to have been old deities of the soil. Pausanias* gives Thallo as one of the two Horae whom the Athenians worshipped with Pandrosus. He gives Auxo and Hegemone as the two Charites who had been revered at Athens from of old ([GREEK]).* The evidence for the worship of Aphrodite Hegemone is an altar basis found on the Acropolis at Athens with the inscription: [GREEK].* Epigraphical evidence also furnishes the epithet Hegemonius with Hermes. The inscription* comes from the site of the Metroüm at the Piraeus, where Atys was worshipped with the Mother, and it is therefore presumable that this Hermes belongs in some way to this Asiatic cult.
+
+*) Pollux, 8. 106.
+
+*) Paus. 9. 35, 1-7. The other Hora was Carpo.
+
+*) With Paus. 9. 35, 1-7 _cf._ Herod. 2. 50. Pausanias ascribes to Eteocles of Orchomenus the introduction of three Charites. Herodotus names the Charites among the aboriginal deities of the Hellenes.
+
+*) _C. I. A._ 4. 2, 1161 b; Lolling in [GREEK]. 1891, pp. 25 ff., 126 ff; Homolle in _Bull. de Correspondance Hellén_. 15 (1891), pp. 340 ff.
+
+*) _C. I. A._ 2. 741, Fr. a, 20; b, 14, 1207, 7; Judeich, _Topographie v. Athen_ (Müller's _Handb. d. klass. Altertumsw._ 3. 2, 2) p. 400.
 
 It is possible to interpret Hegemone as an epithet indicating warlike character. The phrase, "leader of the people," applied to Aphrodite at Athens, suggests this. The Hegemone whom the ephebes invoked may have been regarded as such a leader. That as a Charis she was a primitive goddess of the soil tends to support the theory, inasmuch as early divinities are frequently both givers of fertility and protectors of their people in battle. It has been seen that this was the case with Apollo Carneüs at Sparta. It is noteworthy that there he was associated with Artemis Hegemone. This combination of qualities is displayed by the Great Mother and those resembling her. It has been noted that the Arcadian cult of Artemis Hegemone was in some way closely related to that of Despoena, a goddess whose rites were connected with the Corybantic rites of Demeter and the Asiatic Mother. Furthermore, the likeness between Artemis Hegemone and Hecate confirms the theory.
 
