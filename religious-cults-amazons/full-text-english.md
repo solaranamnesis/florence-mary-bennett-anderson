@@ -764,35 +764,181 @@ Elsewhere in Arcadia, --- at Megalopolis* and near Acacesium* --- there were mon
 
 There were two other legends of armed women in Greece, both localised, like the Tegeate story, in the Peloponnese. A statue of Ares at Argos was explained as the dedication of a band of women under the poetess Telesilla who had won a victory over the Spartans.* The other legend belonged to Sparta. Here a troop of women commemorated their victory over the Messenians by founding a temple to Aphrodite [GREEK].* The most obvious interpretation of the epithet is to derive it from Ares and to render it "Warlike." It is used of Athena in three oaths of alliance suggestive of the martial character of the goddess.* The Athenians built a temple to Athena [GREEK] at Plataea, constructed from the spoils of Marathon.* After his acquittal on the Areopagus Orestes is said to have dedicated an altar to Athena [GREEK].* In this the reference is evidently to the name of the hill on which the court sat, which the Greeks themselves, however mistaken they may have been in their etymology, certainly connected with Ares.* These instances of the use of the epithet favour the idea that it was derived from the name of Ares. It may be argued that Aphrodite [GREEK] was a type of the goddess conceived as guardian of the state. In this aspect she was more frequently worshipped at Sparta than elsewhere in Greece. The probabilities are that she was represented armed.* This political goddess of Sparta was the Oriental Aphrodite, called Urania. The fact that one group of armed women gave special honour to Ares, another to Aphrodite [GREEK], is of importance to the investigation. The hint that the two deities were in some way associated suggests connection between Ares and the Anatolian cult of the warlike Mother whom the Amazons worshipped.
 
+*) Plut. _Mulier. Virt._ 5. Herodotus refers to the story, but not explicitly (3. 76-83). Pausanias mentions the exploit, but does not speak of Ares (2. 20, 8).
+
+*) Lactant. _De Falsa Relig._ 1. 20. _Cf._ Paus. 3. 17, 5.
+
+*) _C. I. A._ 2. 333; _C. I. G._ 3137; Fränkel, _Inschr. v. Perg._ 1. 13.
+
+*) Paus. 9. 4, 1.
+
+*) Paus. 1. 28, 5.
+
+*) In ancient literature the word Areopagus is always derived from Ares.
+
+*) _Cf._ Paus. 3. 23, 1; _C. I. G._ 3. p. 683, 1444; Antipater, _A. A. O._ 176.
+
 It would seem that the connection between Ares and the Warlike Aphrodite was not slight. At Thebes the joint cult of the two as a conjugal pair was established at an early date,* and their union was said to have given rise to the Cadmean family and thence to Dionysus. Through marriage with Harmonia, daughter of Ares and Aphrodite, Cadmus obtained the throne, and from the teeth of the serpent sacred to Ares he raised up the famous crop of warriors.* Tümpel* believes that the joint cult of Ares and Aphrodite originated at Thebes, and that from this city it spread through Greece, acquiring prominence in Attica and Arcadia. He finds the goddess to be the Oriental Urania, yet, strangely enough, he is unwilling to believe that she was conceived as an armed goddess in the earliest times at Thebes.
+
+*) In the Aeschylean _Septem_ the Thebans call upon Ares and Cypris as the ancestors of their race (125-129).
+
+*) On the marriage of Ares and Harmonia _v._ Hesiod, _Theog._ 933 ff. _Cf._ the stock genealogy in the _Bacchae_ of Euripides.
+
+*) Tümpel, _Ares u. Aphrodite_, Fleckeisen's _Jahrbücher_, Suppl. 1 (1880), pp. 641-754.
 
 In Laconia, where Warlike Aphrodite, or Urania, was specially reverenced, the cult of Ares was more dignified and apparently more ancient than in other parts of Greece. Epicharmus is said to have claimed the deity as a Spartan.* Under the name Enyalius he was worshipped by the Spartan ephebes.* Each of the two bands into which the youths were divided sacrificed a puppy to him, performing the ceremony at night in the Phoebaeum near Therapne. The ritual bears throughout the marks of primitive times. The most striking detail is the sacrifice of dogs, in mentioning which Pausanias remarks that he knows of only one other instance, namely, to Enodia, or Hecate, at Colophon. There are, however, other records of the practice,* in which it is noteworthy that the custom belongs to the worship of Hecate. Ares was worshipped under his own name at Therapne in a temple which Pausanias* describes as one of the earliest monuments in the region. The cult legend was that the image was brought from Colchis by the Dioscuri. The god had a strange epithet, Theritas, supposedly derived from Thero, the name of his nurse. Pausanias is so dissatisfied with this etymology that he suggests that the word was learned from the Colchians and was unintelligible to the Greeks. Wide* states a plausible hypothesis, that the cult was of Boeotian origin, basing his theory on the affiliations of the word Theritas. It may, however, have been a very early indigenous cult, for Therapne was evidently an important pre-Dorian site, as excavations have proved.* Here the Dioscuri received special honours, and Helen was worshipped from old times as a nature goddess.* Pausanias* was told that the town was named from a daughter of Lelex. It is possible to infer that the cult of Ares Theritas, in which the temple was one of the oldest monuments in a region where pre-Dorian influence was strong, was "Lelegian." The people who established it would thus be akin to the Curetes of Aetolia and Acarnania. The connection with the Dioscuri favours the theory.* There are two other examples of the Laconian worship of Ares. As Enyalius* he had a statue at Sparta near the _Dromos_, which represented him in fetters. In _Ancient Village_, a hamlet near Geronthrae, he had a sacred grove and temple. Here there was an annual festival from which women were excluded.*
 
+*) Arnobius, _Adv. Nat._ 4. 25.
+
+*) Paus. 3. 14, 10; 3. 20, 2.
+
+*) Rouse collects the examples, _Greek Votive Offerings_, p. 298, n. 9.
+
+*) Paus. 3. 19, 7-9.
+
+*) S. Wide, _Lakonische Kulte_, pp. 149 ff.
+
+*) _British School Annual_, 15 (1908-09), pp. 108-157; 16 (1909-10), pp. 4-11.
+
+*) _Cf. Btsh. Sch. Annual_, _l. c._; Frazer, _Paus._ 2. pp. 358-359.
+
+*) Paus. 3. 19, 9.
+
+*) _V._ ch. 4, p. 55.
+
+*) Paus. 3, 15, 7.
+
+*) Paus. 3. 22, 7-8.
+
 It is, on the whole, safe to conclude that in Laconia Ares was revered in early times. The cult may have been indigenous among the pre-Dorians, or it may have been an importation from Boeotia, where he was worshipped with Aphrodite. Possibly the Fettered Ares of Sparta should be connected with a Fettered Aphrodite* in the same city. The two types may have given rise to a tale like that of Arcadia, of the servitude of Ares,* and the "lay of Demodocus" in the _Odyssey_ could be referred to some such myth. Traditions of armed women in Tegea and in Sparta serve to connect Ares in Arcadia with Aphrodite [GREEK] in Sparta.
+
+*) Paus. 3. 15, 11.
+
+*) _V._ n. 285.
 
 There are not many traces of the cult of Ares elsewhere in Greece. The mythical genealogies of northern Greece associated him with Minyan Orchomenus,* Minyan Thessaly,* Curetis,* and Aetolia.* Mention has already been made of Thebes. At Athens* he was said to have been the father of Alcippe by Aglaurus, a primitive goddess. In the Peloponnese he was connected by genealogical legends with Tegea,* Elis,* and Tritea in Achaea.* It is impossible to give much weight to such myths unsupported by further evidence, inasmuch as there was a tendency among Greek writers of all times to consider any famous warrior of the heroic age a son of Ares. The statement applies also to war-like races like the Phlegyae, mentioned by Homer and other poets.
 
+*) Ascalaphus and Ialmenus of Orchomenus, sons of Ares by Astyoche: _Iliad_, 2. 511-515; 9. 82; 13. 518; Paus. 9. 37, 7.
+
+*) Phlegyas of Thessaly, son of Ares by Chryse of Orchomenus: Paus. 9. 36, 1-4.
+
+*) Evenus and Thestius, sons of Ares by Demonice: Apollod. 1. 7, 6.
+
+*) Meleager, son of Ares, rather than Oeneus, by Althaea: Apollod. 1. 8, 1; Eur. _Meleager_, Fr. 1.
+
+*) Paus. 1. 21, 4; _Mar. Par._, _C. I. G._ 2374, 5.
+
+*) Aëropus of Tegea, son of Ares by Aërope: _v. supra_, p. 60.
+
+*) Oenomaüs, reputed son of Ares by Harpina: Paus. 5. 22, 6.
+
+*) Melanippus, oecist of Tritea, son of Ares: Paus. 7. 22, 8. There was a Theban Melanippus, famous as a warrior at the time of the first attack on Thebes (Paus. 9. 18, 1). There was also a Melanippus at Patrae in Achaea, who with his love Comaetho was sacrificed to Artemis Triclaria (Paus. 7. 19, 2-5).
+
 This investigation of the worship of Ares in Greece proper yields two important results: first, it tends to indicate that the god was worshipped in primitive times; secondly, in the relation between the cult of Ares and that of the Oriental Aphrodite at an early date in Thebes, and in the hints of a similar connection in Arcadia and Laconia, there is the suggestion of contact with the Amazons, who worshipped a goddess resembling this Aphrodite. This raises the question whether the period may be determined in which the joint cult originated in Greek lands.
 
-Famell* conjectures that at Thebes the Oriental goddess was brought from the east by the "Cadmeans," while Ares was an ancient god of the land. He believes that "by the fiction of a marriage" her cult was reconciled to the older worship. The hostility of Cadmus toward the sacred serpent of Ares and the wrath of the god against the hero are legendary details which support some such theory as this. Cadmus seems to have been a late comer, for he is not mentioned in the Homeric poems, where Amphion and Zethus are named as the founders of Thebes.* It looks as if in Elis also a form of the Oriental Aphrodite was reconciled with an indigenous cult of Ares. Here the genealogical myth is not the only evidence for the worship of Ares; an altar to Ares in the race-course at Olympia attests the cult.* By the legend Pelops married Hippodamia, granddaughter to Ares. Hesychius* identifies her with Aphrodite, and Pelops, like Cadmus, was conceived as coming from the east.* The parallel is practically exact. In the case of Pelops the legends which connect him with Lydia and Paphlagonia are more plausibly interpreted as reflexes of Hellenic settlement in Asia Minor than as the record of the planting of an Asiatic colony near Olympia.* Therefore the cult of Aphrodite-Hippodamia would seem to have come into Elis by means of religious influence flowing back from the stream of emigration to the east. Thus the Elean parallel would be of service to Famell's argument. The Attic myth of Theseus tends, however, to support the opposite theory. This saga certainly preserved the memory of the predominance of Crete in the Aegean.* Thus Aphrodite-Ariadne probably belonged to the pre-Hellenic inhabitants of Attica. It may be stated as an hypothesis that Ares was also worshipped in very early times at Athens. The evidence is this: his connection with Aglaurus, who seems to have been a primitive goddess;* the invocation of Ares and Enyalius in the ephebes' oath, which associates him with Aglaurus, the Attic Charites, and Hegemone;* the well established cult of Ares in the fifth century on the lower slopes of the Areopagus.* The association with Hegemone is of special value, inasmuch as the epithet belongs to Aphrodite and to an Artemis similar to Astrateia.
+Farnell* conjectures that at Thebes the Oriental goddess was brought from the east by the "Cadmeans," while Ares was an ancient god of the land. He believes that "by the fiction of a marriage" her cult was reconciled to the older worship. The hostility of Cadmus toward the sacred serpent of Ares and the wrath of the god against the hero are legendary details which support some such theory as this. Cadmus seems to have been a late comer, for he is not mentioned in the Homeric poems, where Amphion and Zethus are named as the founders of Thebes.* It looks as if in Elis also a form of the Oriental Aphrodite was reconciled with an indigenous cult of Ares. Here the genealogical myth is not the only evidence for the worship of Ares; an altar to Ares in the race-course at Olympia attests the cult.* By the legend Pelops married Hippodamia, granddaughter to Ares. Hesychius* identifies her with Aphrodite, and Pelops, like Cadmus, was conceived as coming from the east.* The parallel is practically exact. In the case of Pelops the legends which connect him with Lydia and Paphlagonia are more plausibly interpreted as reflexes of Hellenic settlement in Asia Minor than as the record of the planting of an Asiatic colony near Olympia.* Therefore the cult of Aphrodite-Hippodamia would seem to have come into Elis by means of religious influence flowing back from the stream of emigration to the east. Thus the Elean parallel would be of service to Famell's argument. The Attic myth of Theseus tends, however, to support the opposite theory. This saga certainly preserved the memory of the predominance of Crete in the Aegean.* Thus Aphrodite-Ariadne probably belonged to the pre-Hellenic inhabitants of Attica. It may be stated as an hypothesis that Ares was also worshipped in very early times at Athens. The evidence is this: his connection with Aglaurus, who seems to have been a primitive goddess;* the invocation of Ares and Enyalius in the ephebes' oath, which associates him with Aglaurus, the Attic Charites, and Hegemone;* the well established cult of Ares in the fifth century on the lower slopes of the Areopagus.* The association with Hegemone is of special value, inasmuch as the epithet belongs to Aphrodite and to an Artemis similar to Astrateia.
+
+*) Farnell, _op. cit._ 2. p. 623.
+
+*) _Odyssey_, 11. 262.
+
+*) Paus. 5. 15, 6.
+
+*) Hesychius _s. v._
+
+*) _Cf._ Paus. 5. 13, 7.
+
+*) The name Pelops first appears in the _Cypria_ (Schol. Pind. _Nem._ 10. 114).
+
+*) _V. supra_, p. 59.
+
+*) _V. supra_, n. 313.
+
+*) _V. supra_, ch. 4, p. 47.
+
+*) Judeich, _op. cit._ p. 311.
 
 The only direct information so far given concerning the worship of Ares by the Amazons comes from Athens.* Therefore it is reasonable to lay stress on the legend of the Oriental Aphrodite in this state.* Yet we have no explicit statement that she was related to Ares in his capacity of patron of the Amazons. The nearest approach to a solution of the problem is possibly to be found in the ancient association between Ares and Enyo.* Enyo was apparently identified with the armed goddess of Cappadocia who was known as Mâ, who, in turn, was identified with Cybele as Mother of the Gods.* Aphrodite-Ariadne and the Armed Aphrodite are in a measure forms of the Mother. Hence by an equation Aphrodite under these two types becomes identical with Enyo, the companion of Ares.
 
+*) Aeschyl. _l. c._ (_Eum._ 685-690).
+
+*) Tümpel (_op. cit._) finds traces of the Theban cult of Ares and Aphrodite in Attica. He does not take into consideration the connections of the legend of Ariadne.
+
+*) _Iliad_, 5. 592.
+
+*) _V. supra_, ch. 2, p. 27, n. 119.
+
 The evidence thus far gathered for a relation between Ares and the Amazons may be stated. 1. Aeschylus mentions their habitual worship of this god while they were besieging Athens; 2. Plutarch represents Theseus at this time sacrificing to Phobus, son of Ares; 3. Pausanias describes the temple of Ares at Troezen as a trophy of the victory of Theseus over the Amazons; 4. in the association between Ares and Aphrodite in several places, in similar association between Ares and Enyo, and in the identification both of this Aphrodite and of Enyo with the Mother whom the Amazons worshipped, there are obscure indications of his belonging to the rites of the Mother; 5. there are fairly good reasons for holding that Ares was an early, or pre-Hellenic god. According to this evidence it is presumable that the connection between Ares and the Amazons was indirect rather than direct. A striking fact should be added. Wherever there were memorials of the Amazons in Greece --- at Athens, Troezen, Megara and Chaeronea in Boeotia, Chalcis in Euboea,* Thessaly* --- there are some indications in each canton that the cult of Ares was there in early times.
+
+*) The early folk of Chalcis in Euboea seem to have been akin to the Leleges and Abantes of Boeotia. There were connections also with Chalcis of the Curetes in Aetolia. _Cf._ _Iliad_, 2. 536 ff.; Paus. 5. 22, 3-4; 9. 5, 1; 10. 35, 5. The most important connection here is that with Boeotia, where the worship of Ares certainly belonged. It is a curious fact that Chalcodon, the great Homeric hero of Euboea (_Iliad_, 2. 541), had an heroüm at Athens in the plain where there were many memorials of the Amazons (Plut. _Thes._ 27, 3).
+
+*) The genealogies of Thessaly are worth considering, because they show the persistent tradition of relationship between the primitive folk of this canton and Boeotia. _V._ n. 310.
 
 There are two other sets of records which belong to the discussion of the cult of Ares in its relation to the Amazons. Of these the first is a small group of ancient references to the Amazons as children of Ares. Euripides* terms them [GREEK], a phrase echoed in the Latin _Mavortia_ applied to one of them.* The term is of no value toward establishing a theory of a cult relation with Ares, for it as colourless as are the familiar epic phrases, [GREEK] and [GREEK], applied to warriors. Elsewhere, however, the Amazons are conceived as actually daughters of the god. The stock genealogy assigned to the race made them the children of Ares and Harmonia,* while Otrere is individually named as the child of these parents.* Harmonia's name is easily associated with that of Ares, since in Theban legends she appears as his daughter. It is therefore tempting to see in the mother of the race the goddess Aphrodite. But it is impossible to follow out the clue. The relationship is manifestly a stereotyped one, manufactured by logographers. Furthermore, the mother is not consistently called Harmonia. At times she appears as Armenia,* from which it may be inferred that the name of the mother of the Amazons came from the study of geography, and that Harmonia's crept in as a corruption. Arctinus* called Penthesilea a Thracian and the daughter of Ares. Possibly the theory that the race in general were children of Ares may have originated thus, or in some other poem of the Cycle. If the Amazons had not been conspicuously warriors, and if it were not at first sight a figure of speech to term a band of women the children of the war-god, it would be easier to judge whether these statements are poetical or representations of the view of genealogists.
 
+*) Eur. _Herc. Fur._ Fr. 413.
+
+*) Val. Flacc. 5. 90.
+
+*) For references _v._ n. 10.
+
+*) Ap. Rh. 2. 389; Schol. Tzetz. _Post-Hom._ 8. 189; Schol. Ap. Rh. 2. 1032; Hyg. _Fab._ 30, 112, 163, 223, 225.
+
+*) The word appears in Pherecydes, but, because the corruption may be a scribe's error, no argument can be based on this.
+
+*) _V._ ch. 1, p. 3.
+
 The reference to Thrace is more valuable. Herodotus* shows that the cult of Ares was important here, for he says that the Thracians worshipped three gods, Ares, Dionysus, and Artemis. As it has been said, the sacrifice of dogs in the Spartan ritual of Enyalius finds its only parallels in the rites of Thracian Hecate.* Many modern authorities* believe that the cult of Ares was of Thracian origin.* The rites of Dionysus, to whom he was akin,* belong also to the orgiastic ceremonies of Phrygia. In general, as it has been noted, there is striking similarity between the cults of Phrygia and those of Thrace. This comes out strongly in the worship of the Mother. It is noteworthy that the custom of sacrificing dogs, a conspicuous and difficult feature in the rites of Ares and also of Hecate, belonged to the Carian worship of Ares.* It should be added that at Lagina in Caria the orgiastic worship of Hecate was established with the peculiar characteristic of the cult of Cybele at Pessinus and of Artemis at Ephesus.* Thus from all sides the theory finds support that the cult of Ares should be classed as Thracian-Phrygian and connected with that of the Mother. The inference is that the pre-Hellenic Ares of the Greek mainland was a god of the people who had a pre-historic culture allied to the "Minoan."
+
+*) Herod. 5. 7.
+
+*) _V. supra_, pp. 26, 63.
+
+*) Among them are Miss Harrison (_Proleg._ pp. 375-379); Tümpel (_op. cit._ p. 662); Farnell (_op. cit._ ch. on Ares), who states the theory tentatively.
+
+*) Sophocles held this view (_ap._ Arnob. _Adv. Nat._ _l. c._). _Cf._ St. Basil, who gives [GREEK] as the old name of Thrace (_s. v._ [GREEK]).
+
+*) J. E. Harrison, _Proleg._ _l. c._
+
+*) Arnob. _l. c._ (_Adv. Nat._ 4. 25).
+
+*) _V. supra_, n. 77.
 
 Apollonius Rhodius* represents the Amazons engaged in a ritual as strange as the sacrifice of dogs which suggests Thrace and Caria. He relates that on "Ares island" in Pontus they sacrificed horses in the temple of Ares. An obscure record of this is apparently preserved by the Scholiast on a line in the _Lysistrata_ of Aristophanes.* The scholium mentions no deity by name; it merely comments on the legend that Amazons sacrificed horses. Ares is not elsewhere than in the passage from Apollonius named as a god thus worshipped, and possibly here, even in the temple of Ares, the ritual is to be referred rather to the worship of Cybele under baetylic form than to that of Ares. The victim was a rare one among the Greeks, belonging to Apollo, Helios, the wind-gods, and especially to Poseidon. It may be that the words of Apollonius imply a connection between the cult of Ares and that of Poseidon Hippius. At Troezen the temple of Ares gave access to the Genethlium, probably a shrine of Poseidon;* at Athens there was the story of the murder of Halirrhothius, son of Poseidon;* at Olympia the altar of Ares was dedicated to Ares Hippius.* The cult of Poseidon Hippius at Athens seems to have been in some way connected with that of the pre-Ionic Semnae, or Eumenides, both at Colonus Hippius and on the Areopagus.* Possibly the Troezenian legend of the death of Hippolytus suggests jealousy between Ares, a divinity of the Amazons, and Poseidon, the reputed father of Theseus. The ritual of horse sacrifice among the Amazons may be the basis of the tradition that they were skillful horse-women.
 
+*) Ap. Rh. 2. 1179; _cf._ 2. 387. _V. supra_, n. 66.
+
+*) Aristoph. _Lys._ 191. Undue importance has been given to the scholium by Preller-Robert (p. 343, n. 5), but, on the other hand, Farnell, in bringing forward this criticism, fails to give due weight to the quotation from Apollonius.
+
+*) _V. supra_, nn. 271, 272.
+
+*) Paus. 1. 21, 4; 1. 28, 5.
+
+*) Paus. 5. 15, 6.
+
+*) Harrison and Verrall, _Myth. and Mons._ p. 601.
+
 The sacrifice of horses to Ares is recorded as a custom of the Scythians,* a people who apparently associated the horse with funerary oblations.*
+
+*) Arnob. _Adv. Nat._ 4. 25. On Scythian Ares _cf._ Herod. 4. 62.
+
+*) _Cf._ sacrifice of horses in Scythian tumuli, _Arch. Anz._, 1910, 195-244.
 
 The best example of this sacrifice in the rites of the war-god comes from Rome,* where on October fifteenth there was an annual race of bigae in the Campus Martins, after which the near horse of the winning pair was sacrificed to Mars, and his blood was allowed to drip on the hearth of the Regia. Probably the blood of this sacrifice was afterwards mixed with the ingredients of the sacred cakes. The rite evidently was in honour of Mars as a deity of fertility. He was undoubtedly worshipped by the primitive Romans in this capacity as well as in that of warrior.*
 
+*) Warde Fowler, _Lustratio_, pp. 186 ff.
+
+*) Warde Fowler, _op. cit._ and J. E. Harrison, _Btsh. Sch. Annual_, 1908-09, pp. 331 ff.
+
 Apparently then the poetic legend of the Amazons' offering horses to Ares presents him in a very primitive aspect with the suggestion that he was a chthonic deity of fertility. As warrior and giver of increase he resembles Apollo Carneüs. A scholium* furnishes information which strengthens the supposition that he was in his primitive form a nature god. This tells of an obsolete custom in time of war, by which the signal for attack was given by priests of Ares called [GREEK], who hurled lighted torches between the two armies. This suggests the orgiastic cults of Thrace and Phrygia, in which the torch was a prominent feature. It belonged also to the ceremonies of fire in honour of Mars in primitive Rome.*
 
+*) Schol. Eur. _Phoen._ 1186.
+
+*) J. E. Harrison, _Btsh. Sch. Ann._ _l. c._ On chthonic Ares _cf._ Artemid. _Oneirocr._ 2. 34.
+
 Even in ancient times there were conflicting theories concerning the provenience of the cult of Ares. Amobius* says: "Quis Spartanum fuisse Martem (prodidit)? Non Epicharmus auctor vester? Quis is Thraciae finibus procreatum? Non Sophocles Atticus cunctis consentientibus theatris? Quis mensibus in Arcadia tribus et decem vinctum? Quis ei canes ab Caribus, quis ab Scythibus asinos immolari? Nonne principaliter cum ceteris Apollodorus?" The general tendency of the evidence is in the direction of the theory that Ares was an ancient god of the Thracians, of the pre-Hellenic peoples of Greece, and of the races who worshipped the Mother in Asia Minor and Crete.
+
+*) Arnobius, _l. c._ (_Adv. Nat._ 4. 25).
 
 As a god whom the Amazons worshipped he does not appear to have been as important as the Mother. The records of his association with them are few and confused. The best evidence is doubtless that furnished by the extant accounts of the saga of Theseus and the Amazons, to which Ares belongs, although it is not possible to define his position. The saga is of special importance in being analogous to the Ephesian tales of Heracles and Dionysus.
 
@@ -802,9 +948,27 @@ The Amazons were votaries of Cybele, Artemis under the surnames Ephesia, Tauropo
 
 The theories concerning the Amazons which have commanded most respect are three: 1. that the tradition arose from memories of the raids of warlike women of the Cimmerians and kindred peoples, who in early times forced their way into Asia Minor from the north; 2. that the Amazons were originally the warrior-priestesses, or hieroduli, of the Hittite-Cappadocian Mâ, and that the Hittites passed on legends about them to the people of Lycia, Lydia, and adjoining lands; 3. that the tradition of the Amazons was grounded on the mistaken notion, deeply rooted among the Greeks, that beardlessness is a sure indication of female sex, whence they failed to recognise as men certain warriors who appeared at an early date as foes of the people of Asia Minor. To the first* of these it is to be objected --- irrespective of evidence furnished by the cults with which the Amazons were associated --- that a northern home beyond the Euxine was assigned to the race by Aeschylus and Herodotus, but that the oldest records of the Greeks, the Homeric poems, place them near Lycia and Phrygia. In this region the tradition struck down into the soil, as shown by the tales of many cities claiming the Amazons as their founders. To the second* it must be replied that Mâ is nowhere named in direct connection with the Amazons, although she resembles in a general way the female deities whom they were said to have worshipped. Furthermore, in the records of her rites there is no hint of armed hieroduli.* And, still further, the evidence on which the assumption rests that the Hittite kingdom was one of great importance and influence is not strong. The last theory* is very interesting, because it is novel and daring, and also because it draws attention to certain curious facts usually overlooked by anthropologists. But as a foundation for the persistent tradition of the Amazons as armed women it is too slight in structure.
 
-The tradition, interpreted in the light of evidence furnished by the cults which they are supposed to have practised, seems to have originated among the people who built up the pre-historic civilisation of the Aegean, of which the finished product was apparently "Minoan" culture. In their warlike character the Amazons are reflexes of the Woman whom they worshipped. Like the Warrior Goddess of Asia Minor they carry the battle-axe, and in this they are shown to be closely related to the religion of pre-historic Crete, of which the weapon is the conspicuous symbol. Their other weapon, the bow, is also Cretan.* It is the attribute of the Asiatic-Cretan Apollo whom they seem to have revered. They belong to the early* matriarchate, which left traces in Caria and Lycia.* In Greece itself, even in Laconia, the canton belonging to the fiercest of the Hellenic invaders who introduced the patriarchate, women enjoyed unusual freedom in Greek times, and here there were stories of their having borne arms for their country. There were similar tales at Argos and in Arcadia, and at the Olympian Heraeum there was a footrace of maidens in honour of Hippodamia.* These are doubtless vestiges of the matriarchate of the pre-Hellenic inhabitants of Greece. They suggest many comparisons with the Amazon tradition. The legend of Atalanta offers similar parallels to the story of the Amazons in its pleasing aspect. Its darker side, which the older Greeks emphasised, is reflected in the tale of the Lemnian women who murdered their husbands.* These were Myrina's children and descendants of Dionysus. The energy of this ancient matriarchal organisation is shown in the idea of confusion of sex which belonged to the cults of Cybele and Ephesian Artemis in historical times. The idea is prominent in the legends of the Amazons, as they touch religion. At Ephesus they were connected with Dionysus and Heracles, to both of whom an effeminate character belonged. Their place in state cult at Athens has the same implications.
+*) On the theory _v._ O. Klügmann, _Philologus_, 30 (1870), pp. 524-556. Stoll inclines to this theory, as shown by his article in Pauly's _Realenc._ _s. v._ _Klügmann_. Other advocates are Fréret, _Mémoire de l'acad. d'inscr._ 21. pp. 106 ff.; Welcker, _Ep. Cycl._ 2. pp. 200 ff. It is sympathetically treated in Roscher's _Lexikon_, _s. v._ _Amazonen_. Farnell seems inclined to accept it, although he does not explicitly advance an opinion. In one part of his work (_op. cit._ 5. p. 406) he takes the negative position that "the Amazon tradition is sporadic in Greece and perplexes the ethnographer and the student of religion," yet elsewhere (2. p. 482) he makes the close connection between Ephesian Artemis and the Amazons the basis of the suggestion that northern Asia Minor was perhaps the home of the cult.
+
+*) A. H. Sayce is the chief advocate of the importance of the Hittite kindgom. His most recent remarks on the Amazons are in _Proc. Soc. Bibl. Arch._ 1910, pp. 25-26. They are supported by A. J. Reinach, _Rev. Arch._ 1910, pp. 280-282. _Cf._ Leonhard, _Hettiter u. Amazonen_, 1911.
+
+*) This objection is made by Farnell, _op. cit._ 5. p. 406.
+
+*) This is the theory of Myres in _Anthropology and the Classics_, pp. 138 ff. Farnell is more satisfied with this than with the hieroduli theory (_op. cit._ 5. p. 406).
+
+The tradition, interpreted in the light of evidence furnished by the cults which they are supposed to have practised, seems to have originated among the people who built up the pre-historic civilisation of the Aegean, of which the finished product was apparently "Minoan" culture. In their warlike character the Amazons are reflexes of the Woman whom they worshipped. Like the Warrior Goddess of Asia Minor they carry the battle-axe, and in this they are shown to be closely related to the religion of pre-historic Crete, of which the weapon is the conspicuous symbol. Their other weapon, the bow, is also Cretan.* It is the attribute of the Asiatic-Cretan Apollo whom they seem to have revered. They belong to the early matriarchate, which left traces in Caria and Lycia.* In Greece itself, even in Laconia, the canton belonging to the fiercest of the Hellenic invaders who introduced the patriarchate, women enjoyed unusual freedom in Greek times, and here there were stories of their having borne arms for their country. There were similar tales at Argos and in Arcadia, and at the Olympian Heraeum there was a footrace of maidens in honour of Hippodamia.* These are doubtless vestiges of the matriarchate of the pre-Hellenic inhabitants of Greece. They suggest many comparisons with the Amazon tradition. The legend of Atalanta offers similar parallels to the story of the Amazons in its pleasing aspect. Its darker side, which the older Greeks emphasised, is reflected in the tale of the Lemnian women who murdered their husbands.* These were Myrina's children and descendants of Dionysus. The energy of this ancient matriarchal organisation is shown in the idea of confusion of sex which belonged to the cults of Cybele and Ephesian Artemis in historical times. The idea is prominent in the legends of the Amazons, as they touch religion. At Ephesus they were connected with Dionysus and Heracles, to both of whom an effeminate character belonged. Their place in state cult at Athens has the same implications.
+
+*) Paus. 1. 23, 4.
+
+*) _Cf._ Myres, _op. cit._ pp. 153 ff.
+
+*) Paus. 5. 16, 1 ff.
+
+*) Apollod. 1. 9, 3. At Lemnos there were Corybantic rites of Bendis (Strabo, p. 466).
 
 We may believe then that the tradition of the Amazons preserves memories of a time when women held the important place in state and religion in Aegean lands, and that they reflect the goddess of this civilisation. It is noteworthy that the earliest writings of the Greeks concerning them show them in that part of Asia Minor where the rites of the Mother throughout ancient times menaced the reason of her worshippers. The troop of maenads who followed Dionysus were like the Amazons, but the clue to their kinship was easily lost.* The relation between the Amazons and the Anatolian cults was practically obliterated, whereas maenads were introduced into Greek religion after many generations had altered the first form of orgiastic worship. Moreover, the deity of the maenads, who was earlier only the _paredros_ of the Woman, had become an Olympian.
+
+*) The germ of the thought is in R. Y. Tyrrell's Preface to his edition of the _Bacchae_ of Euripides. _V._ p. 83 (ed. 1906).
 
 Greek travellers of the age of Herodotus naturally inferred that they had discovered the Amazons in the regions of Scythia and Libya where armed women were said to fight in the ranks with men. Even before this time the traditional home of the race had been placed further and further eastward, as Greek colonists failed to find Amazons in Lydia, Phrygia, Lycia, and along the southern shore of the Euxine. Yet, granted the origin of the Amazon tradition among the "Minoans" and their kindred, it is at present impossible to say that these pre-historic races had no affiliations with Scythians, Libyans, and Hittites.
 
