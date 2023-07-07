@@ -620,19 +620,83 @@ It is possible to interpret Hegemone as an epithet indicating warlike character.
 
 But whether Artemis Hegemone gained her epithet from a warlike character or not, she is undeniably a goddess whose attribute was the torch, and in this she approaches several of those forms of Artemis which are admitted to be martial.* Artemis Agrotera was a huntress like the Artemis, probably Hegemone, beside the throne of Demeter in the sanctuary of Despoena. Like her, and also like the Artemis of the outer shrine, who was certainly Artemis Hegemone, she was a goddess of the torch. The fact comes out in the story of the rout of the Sicyonian army at Aegaera. In the version which the Pseudo-Plutarch gives of the ceremony in which the Polemarch and ephebes sacrificed at Athens in memory of Marathon he substitutes Hecate for Artemis Agrotera, the name given by Pollux. Artemis Laphria, who seems to have resembled Ephesia, was honoured at Patrae in Achaea in an annual festival of fire.* Into an enclosure about her altar all sorts of wild beasts were driven to be burned alive. Like Agrotera and, presumably, like Hegemone, she was a huntress. Another huntress was Thracian Bendis, who was nearly related to Hecate and the Mother, and who was taken over by the Greeks as a form of Artemis. Her rites required torches.*
 
+*) On the tsnpes of warlike Artemis 9. aupra, pp. 43-44. 
+
+*) Paus. 7. 18, 11-13.
+
+*) For references _v._ n. 118.
+
 The torch does not appear as a feature in the Hellenic worship of Artemis until the fifth century B. C. After that its connection with the cult becomes steadily more and more prominent. Its association with this goddess may be traced historically to the influence of orgiastic rituals from Thrace and Asia Minor, like those of the Mother and Dionysus, and it is to be explained by the tendency to identify Artemis with various forms of _Magna Mater_.* The inference is inevitable, that the three types of Artemis, --- Agrotera, Hegemone, and Laphria --- approach one which may be called Thracian-Phrygian, probably that of Hecate, in so far as she is similar to Cybele. These three forms of Artemis are warlike in character, but it is impossible to state with certainty that any one of them was represented in the cult image as an armed goddess. Such a statement can be made only of the statue of Artemis at Laodicea and of that which Pausanias saw at Messene. We possess no further record of the latter, but we are practically sure that the former was the type surnamed Taurica and Brauronia.* Since the home of this cult was the Tauric Chersonese, where the goddess was called the Virgin, the type must be classed as Thracian, and since it resembles that of Rhea-Cybele and Artemis Ephesia, it may properly be called Thracian-Phrygian. Thus not only the forms of Artemis which imply a warlike character, but also those which represented her armed, indicate that the cult came from the countries where the chief deity was a woman, both Mother and Warrior. It follows, that if Artemis Astrateia be Artemis "of the War-host," she is closely akin to the type of the Mother. In other words, she is, as it was at first conjectured, very like Ephesia and Tauropolos.
+
+*) _Cf._ Farnell _op. cit._ 2. pp. 474-475.
+
+*) _V._ n. n. 122, 205.
 
 It remains to consider the possibility that she is Astarte. Cicero* remarks that Astarte of Syria was identified with Aphrodite, and that in this conception she appears as the wife of Adonis. Herein the type of Aphrodite approximates that of Cybele in Lydia and Phrygia where Atys corresponds to Adonis. At Hierapolis the Syrian goddess described by the Pseudo-Lucian has characteristics of Artemis as well as Aphrodite. In these rites the torch was a prominent feature, as in those of the Thracian-Phrygian Mother. Thus Artemis Astarte might be precisely the same as Warlike Artemis. Moreover, even if the goddess at Pyrrhichus were an Astarte more similar to Aphrodite than to Artemis, the probabilities would be strong in favour of the theory that she was armed, for the cult epithet of Aphrodite-Astarte in Greek religion was Urania, of whom there is reason to believe that she was the armed Aphrodite.* So from two hypotheses, the one, that Artemis Astrateia is Warlike Artemis, the other, that she is Astarte,* the inference is to be drawn that the image at Pyrrhichus showed her armed.
 
+*) Cic. _De Nat. Deor._ 3. 23, 59.
+
+*) _Cf._ Paus. 1. 14, 7; 3. 23, 1. _V. infra_, ch. 5, _Ares_.
+
+*) Possibly there is some support for Farnell's hypothesis, that Astrateia is a corruption for Astarte, in the words of St. Stephen's sermon recording the apostasy of the Jews to the Syrian goddess: [GREEK], _Acts_, 7. 42.
+
 On the assumption that the goddess was armed it is reasonable to suppose that an armed god was grouped with her. It is easy to imagine the Hellenic Apollo defending his people, inspiring them with courage, and visiting their enemies with pestilence, yet he is not a truly martial deity under any one of these conceptions. However, his worship at Sparta as Carneüs has reminiscence of a time when he was regarded as a fighting god. Comment has already been made* on the indications that Carneüs was a pre-Dorian divinity of prophecy whom the Hellenes identified with their Apollo. The Phrygian god to whom he was very possibly related was a warrior in so far as the bow was as fixedly his attribute as the mantic gift. Near Sparta there was the shrine of another Apollo,* portrayed in rude and primitive fashion in the form of a colossal bronze column, to which were added the head, hands, and feet of a man. The figure wore a helmet, and in his hands he carried spear and bow. Amyclae, the village to which his sanctuary belonged, was one of the pre-Dorian cities which had held out valiantly, but had finally been devastated by the invaders.* Here there was preserved down to the time of Pausanias a sanctuary of Alexandra, so-called by the Amyclaeans, who was said to be Priam's daughter Cassandra.* At Leuctra in Laconia this Alexandra had a temple and image, and here there were _xoana_ of Apollo Carneüs, "made after the custom of the Lacedaemonians of Sparta."* Cassandra is conspicuously a prophetess who belongs to Troy and to Trojan Apollo, and therefore a relation between her cult and that of Carneüs, a god who seems to have been originally identical with the prophetic Apollo of Phrygia, Lycia, and Crete,* is natural. Apollo Amyclaeus resembles this Cretan-Asiatic Apollo in the attribute of the bow, and the helmet and spear betray his relation to Apollo Carneüs. Moreover, since at Leuctra in Laconia there was evidently a connection between the rites of Cassandra and Apollo Carneüs, the inference may be drawn that at Amyclae she stood in ritual relation to the local god. It would follow that Apollo Amyclaeus was in some way a prophet, and thus in another detail Amyclaeus resembles the pre-Dorian Carneüs. The festival of the _Hyacinthia_, which belonged to the Amyclaean cult, gave temporary freedom to the slaves of the region about Sparta and was a great holiday among the humbler freemen. It seems probable therefore that the feast was derived from the religion of the submerged element of the population, _i. e._ from the conquered aborigines. In its mystic imagery of the processes of life and death there is the hint that it was instituted in honour of a chthonic deity of fertility.* The legends of Amyclae certainly told of a period when the place was influential before the Dorian Invasion, and so presumably the worship of Apollo Amyclaeus was instituted by the pre-historic, or "Mycenaean," inhabitants of Laconia, whose civilisation, revealed in the artistic remains of Vaphio and in the myth of the royal house of Menelaus, was homogeneous with that termed "Minoan." The chief points in the argument are that Apollo Amyclaeus was portrayed in non-Hellenic fashion, that he was conceived, like Carneüs, as warrior and god of fertility, and that in general characteristics he seems to have been identical with the prophet-archer worshipped in Asia and in Crete.
+
+*) _V. supra_, pp. 45-46.
+
+*) Paus. 3. 18, 6-19, 5. _V._ Frazer's commentary on the passage.
+
+*) Paus. 3. 2, 6; 3. 19, 6.
+
+*) Paus. 3. 19, 6. There was a dispute between Amyclae and Mycenae, each of them claiming to possess the tomb of Cassandra (Paus. 2. 16, 6). The word Alexandra suggests the Trojan name of Paris. It implies a woman warrior, or one averse to marriage. In the latter connotation it suggests Cassandra's refusal to many Apollo after she had obtained from him the gift of prophecy; it suggests also the other famous story of the sacrilege of Ajax.
+
+*) Paus. 3. 26, 5.
+
+*) From the _Agamemnon_ of Aeschylus it is to be inferred that the cult epithets of Trojan Apollo were Loxias and Agyieus, the names by which Cassandra cries to him. Loxias has the same significance, _Eumen._ 19.
+
+*) On the _Hyacinthia_ _v._ Paus. 3. 19, 3-4; Athen. 4; Ovid, _Met._ 10. 219. In the Laconian myth Hyacinthus was the son of Amyclas, one of the autochthonous kings of Sparta. He became the favourite of Apollo, by whom he was accidentally slain. The legend presents parallels to the story of Agdistis and Atys and that of Aphrodite and Adonis. On the tale _v._ Paus. 3. 1, 3; 3. 10, 1. A legend of Salamis connected the origin of the hyacinth with the death of Ajax.
 
 Thus various trains of thought converge to establish the theory that the deities whom the Amazons were said to have introduced at Pyrrhichus were a warrior woman and a warrior man. The former seems to have been akin to Cybele, the Tauric Virgin, Ephesian Artemis, and others of the general type which includes these, the latter, to the god who was worshipped by the same pre-Hellenic peoples who evolved or perpetuated the rites of the Mother. He is a male divinity of battle and fertility, who was originally of secondary importance to the female. The mantic gift which belongs to him fits in well with the clamour which accompanied the ceremonies of the Mother in historical times and with the sense of possession by divine power which seized upon her worshippers. As Aeschylus clearly shows in the character of Cassandra, the skill of prophecy is divine madness. Frenzy was prominent in all orgiastic cults.
 
 With the thought in mind that Artemis Astrateia and Apollo Amazonius are gods of the race who lived in Laconia before the Hellenes, it is important to examine the brief account which Pausanias furnishes of Pyrrhichus.* The town was said to have been named either from Pyrrhus or from Pyrrhichus, the latter a god of the so-called Curetes. It is natural that the epic tales about the house of Menelaus at Sparta should have been in vogue elsewhere in Laconia. Therefore the story of the coming of Pyrrhus to wed Hermione was associated with Pyrrhichus and also with Scyra* on a river not far away. Pausanias, however, puts more confidence in the other account of the name of the town.
 
+*) Paus. _l. c._ (3. 25, 1-3).
+
+*) Paus. 3. 25, 1.
+
 The theory that Pyrrhichus was a god of the so-called Curetes implies that these are here conceived to be a primitive folk. The only region of Greece to which an early people of this name may be assigned with certainty is the land north of the Corinthian gulf. Apollodorus* states that the older name of Aetolia, regarded as the tract extending from the Evenus to the Acheloüs, was Curetis, and Pausanias* tells that the Curetes were the earliest inhabitants of Acarnania. In the legend of Meleager, as it is preserved in the _Iliad_,* the Curetes are shown besieging Calydon, the Aetolians' city. The dispute had arisen over the division of the spoils of the famous boar-hunt. The death of Meleager, who gives his life for the city, is ascribed in the Homeric version to the prayers of his mother Althaea, who had cried on Hades and Persephone to destroy him in vengeance for his having slain her brother, a prince of the Curetes. Pausanias* quotes the _Eoeae_ of Hesiod and the _Minyad_ as authorities for the statement that he was killed by Apollo, the patron of the Curetes against the Aetolians. In the Homeric story there is a hint that Apollo was unfriendly to the Calydonians. This is in the reference to the presumption of Idas, who attempted to shoot Apollo who had ravished his wife Marpessa. By Idas she was mother of Cleopatra, the wife of Meleager. Heroic legend shows many connections between this region of Acarnania and Aetolia and that of Messenia and Laconia. At the Calydonian chase, in which the Curetes and Aetolians were allies, Idas and Lynceus of Messenia and their Laconian cousins and rivals, Castor and Polydeuces, were among the assembled chiefs who took part.* Idas was connected with the house of Calydon by marriage with Marpessa.* Thestius, brother to Marpessa's father and king of Pleuron, the city of the Curetes, married his daughter Althaea to Oenens of Calydon* and his daughter Leda to Tyndareus of Sparta.* Thus the Dioscuri, Leda's children, were related to the Curetes of northern Greece. These genealogies originated doubtless in racial affinities between the pre-Dorians of Laconia and Messenia and the early folk of Acarnania and Aetolia. In pre-historic times Messenia and Laconia seem to have been one country, founded by Lelex, locally known as an autochthon, and its name was Lelegia.* The Dioscuri were worshipped from of old both in Messenia and in Laconia as [GREEK], and as such they were easily confused with the Cabiri and also with the Idaean Dactyli.* Thus the argument leads to a connection between this folk called Curetes and the people among whom the orgiastic worship of the Mother was indigenous, and so it seems natural that the armed dancers who attended Cretan Rhea should have been named Curetes. The mention of the Leleges in Laconia and Messenia establishes direct connections with the pre-historic "Aegean" civilisation, which was tributary to the "Minoan," and also with the early races by whom the sanctuary of Ephesian Artemis was founded.*
 
+*) Apollod. 1. 7, 6.
+
+*) Paus. 8. 24, 9. It is interesting to compare the suggestion that the Cabiri were a primitive folk of Boeotia (Paus. 9. 25, 6).
+
+*) _Il._ 9. 527-599. _Cf._ Bacchylides, 5. 76-164.
+
+*) Paus. 10. 31, 3.
+
+*) Apollod. 1. 8, 2; Ovid, _Met._ 8. 300; Hyg. _Fab._ 173.
+
+*) _Iliad._ 9. 557-560; Apollod. 1. 7, 9; Schol. _Iliad_ (Ven.), 9. 553; Schol. Pind. _Isth._ 4. 92 (quoting Bacchylides).
+
+*) _Iliad_, 9. 565-572; Apollod. 1. 8, 1; Eurip. _Meleager_, Fr. 1.
+
+*) Schol. Ap. Rh. 1. 146.
+
+*) Paus. 3. 1, 1; 4. 1, 1.
+
+*) _V. supra_, ch. 2, p. 23. _Cf._ Paus. 10. 38, 7. _V._ Toepffer, _Attische Genealogie_, p. 220.
+
+*) _V. supra_, ch. 3, pp. 35 ff.
+
 There are the same implications in the statement* that Pyrrhichus, a god of these Curetes, was another name for Silenus. The oldest and most persistent legends in regard to Silenus connect him with the country about the Maeander in Phrygia.* He belongs to the rites of Dionysus, which were intimately related to those of the Mother. The Cabiric mysteries probably combined the cult of a form of the Mother with that of Dionysus, whence arose the story that Dionysus was the son of Cabirus.* Dioscuri, Cabiri, Anaces, Dactyli are all in a certain sense the same. Hence we may think of this Pyrrhichus as a pre-Dorian, or "Lelegian," member of the circle of deities among whom the Mother was chief. He was probably at once Cabirus, Dactyl, and armed dancer. That he was the last is implied not only by his place among the Curetes, but also by the fact that his name is that of the famous dance at Sparta.*
+
+*) Pind. _ap._ Paus. _l. c._ (3. 35, 2).
+
+*) Herod. 7. 26; 8. 138; Paus. 1. 4, 5; 2. 7, 9.
+
+*) Cic. _De Nat. Deor._ 3. 23, 58.
+
+*) Athenaeus (_Deipnosoph._ 14. 7) ascribes the invention of the Pyrrhic dance to Athena. Plato (_Legg._ 796 B) says that after the gigantomachy she imparted the rite to the Dioscuri. It is noteworthy that Melampus by a dance cures the Proetides whom Dionysus has driven mad (Apollod. 2. 3, 7), and that by some theologians Melampus was reckoned as a Dioscurus along with Alco and Tmolus, sons of Atreus (Cic. _De Nat. Deor._ 3. 21, 53). Dionysus himself was sometimes classed as a Dioscurus, _i. e._ at Athens in the worship of the Anaces (Cic. _l. c._).
 
 The study of the Curetes of Laconia yields evidence in accord with that gathered from other courses of reasoning adopted above. The forerunners of the Hellenes in Laconia seem to have been akin to the people of Acarnania, where Apollo was the patron of the Curetes, the original home of the prophet Carneüs. They seem also to have been related to the race who worshipped the Mother under the type of the goddess of Ephesus.
 
@@ -642,17 +706,61 @@ It must be concluded, therefore, that Artemis Astrateia was a form of Ephesia, a
 
 The legend of the Amazons was not superficially rooted at Athens. This is proved by the fact that it found expression in cult practice at one of the greater festivals of the state. Before the _Thesea_ the Athenians annually offered sacrifice to the Amazons, thus commemorating the victory of Theseus over the women. The decisive battle was said to have been fought on the day marked by the oblation of the _Boedromia_.* Plutarch* bases his belief in the reality of the invasion of Attica on three points: the place names, Amazonium and Horcomosium; the presence of graves of the fallen; the yearly sacrifice to the Amazons.
 
-The general view of ancient writers* is that the Amazons made the Areopagus the basis of their operations, having established their camp there in a spot thenceforth called the Amazonium.* Aeschylus* derives the name of the hill itself from the fact that there the Amazons offered frequent sacrifice* to Ares while they held it as a citadel against the Acropolis. The statement is remarkable in view of two facts which seem to show Ares as the patron of Theseus rather than of the Amazons: Plutarch,* quoting Clidemus,* says that before entering the critical battle with the Amazons Theseus sacrificed to Phobus, son of Ares, and hereby won the day; the tradition* at Troezen told that Theseus commemorated his victory over the Amazons there by dedicating a temple to Ares at the entrance to the Genethlium.
+*) Plut. _Thes._ 27.
+
+*) For Plutarch's version of the invasion (quoting Clidemus for details) _v._ _Thes._ 26-28. He finds it difficult to believe that a band of women could have conducted a campagn on the scale described in the current accounts, but finally accepts the fact. He doubts only the statement of Hellanicus, that they crossed the Cimmerian Bosphorus on the ice.
+
+The general view of ancient writers* is that the Amazons made the Areopagus the basis of their operations, having established their camp there in a spot thenceforth called the Amazonium.* Aeschylus* derives the name of the hill itself from the fact that there the Amazons offered frequent sacrifice* to Ares while they held it as a citadel against the Acropolis. The statement is remarkable in view of two facts which seem to show Ares as the patron of Theseus rather than of the Amazons: Plutarch,* quoting Clidemus, says that before entering the critical battle with the Amazons Theseus sacrificed to Phobus, son of Ares, and hereby won the day; the tradition* at Troezen told that Theseus commemorated his victory over the Amazons there by dedicating a temple to Ares at the entrance to the Genethlium.
+
+*) Plut. _l. c._; Diod. Sic. 4. 28, 2, 3; Apollod. _Epit._ 1. 16; Aeschyl. _Eum._ 675 ff.
+
+*) On the site _v._ Judeich, _Topog. v. Athen_, p. 269.
+
+*) Aeschyl. _Eum._ 685-690.
+
+*) The Greek is: [GREEK]. It seems proper to contrast the imperfect [GREEK] with the aorist [GREEK].
+
+*) Plut. _l. c._ The verb is that employed of chthonic sacrifice, [GREEK]. On Phobus _v._ _Iliad_, 13. 299.
+
+*) Paus. 2. 32, 9.
 
 It is therefore impossible to determine the exact relation in which Ares stood to the Amazons in the story of the invasion of Greece. All that may be said is that his name belongs to the saga of Theseus and the Amazons in the two accounts, the Attic and the Troezenian. It must be added that the saga bears the marks of great age. Herein Theseus is not an intruder, as he evidently is in the tales of the storm of Themiscyra, nor is he a substitute for Heracles. The story is primarily concerned with Theseus himself, the great hero of the two states. While in the former it is connected with ritual acts, in the latter it is hallowed by association with the Genethlium, the traditional birth-place of Theseus.* Moreover, on the tradition of the Amazons at Troezen rests the story of Hippolytus, whose sepulchre assured the safety of the nation.*
 
+*) _Cf._ S. Wide, _De Sacris Troezeniorum, Hermionensium, Epidauriorum_, pp. 12 ff.
+
+*) Frazer, _Pausanias_, 3. p. 281.
+
 The Attic traditions about Theseus were concerned chiefly with his adventures in Crete. With retrospect toward these the Athenians celebrated the festivals of the _Oschophoria_, the _Pyanepsia_, and the _Thesea_. Ariadne, as it has been stated,* was probably a Cretan goddess, with whose worship at Athens are to be connected the rites of the _Oschophoria_, wherein two youths disguised as maidens led the giris' chorus. The implication is that the Oriental idea of sex confusion was associated with the festival. It seems therefore that the ceremonies instituted by Theseus reflect the Anatolian worship of Cybele. It accords with the customary restraint of Hellenic habits that the Oriental idea shown in the cults of Cybele, Ephesian Artemis, and the Syrian Goddess, manifested itself at Athens merely in a pleasing masque. The name of Theseus also connected Troezen with Crete. Phaedra, the wife with whom he lived at Troezen, is famous as the destroyer of the Amazon's son, Hippolytus, and as another princess of the house of Minos. Thus in its twofold aspect the tradition of Theseus suggests the time when "Minoan" Crete was pre-eminent. It may be that the association of the Amazon legend with the tale of Theseus is to be ascribed to some such source. In that case Ares, a deity whose cult had slight prominence in Greece, might by reason of his place in the saga of Theseus and the Amazons, be connected with the cult of Aphrodite-Ariadne. There is this suggestion in a note from Olen which Pausanias* inserts in the account of his visit to the shrine of Hebe at Phlius. Olen connects Ares with Hebe as her own brother, born of Hera. Her shrine at Phlius is shown to be very old by the fact that her worship here was in the strictest sense aniconic. Her annual festival of the "Ivy-Cuttings" has a hint of Dionysus and even of the ivy-shaped shields of the Amazons. From other sources it may be gathered that she was akin to Aphrodite-Ariadne.* Pausanias says that Hebe was substituted for her more ancient name, Ganymeda. In this there is reminiscence of the Trojan youth caught up to heaven by Zeus. The feminine form implies the appropriation by one sex of the characteristics of the other. This might belong naturally to a Phrygian legend.
+
+*) _V. supra_, ch. 3, p. 38. For further references on the _Oschophoria_, _v._ J. E. Harrison, _Prolegomena to the Study of Greek Religion_, pp. 79 ff.
+
+*) Paus. 2. 13, 3-4.
+
+*) On this point _v._ Farnell, _op. cit._ 1. p. 200; 5. p. 126.
 
 A search for parallels to the association which Aeschylus mentions between Ares and the Amazons discovers first of all, as most striking, the legend told of the statue of Ares [GREEK] in the market-place at Tegea.* The statue was explained as the dedication of a band of Tegeate women who had won a victory over the Spartans in the time of King Charillus of Sparta. After peace was established the women instituted a festival in honour of Ares. Since men were excluded from the sacrifice and sacred banquet, the god was called "Entertainer of Women." It is interesting to find such a tale in Arcadian Tegea, the home of Atalanta, herself similar to the Amazons. It is worth bearing in mind that Atalanta won the spoils of the Calydonian hunt in the country of the Aetolians and Curetes, the kindred of the folk of pre-historic Pyrrhichus. In the temple of Athena Alea at Tegea, which contained these spoils,* Marpessa, leader of the women who honoured Ares, dedicated her shield.*
 
+*) Paus. 8. 48, 4-5.
+
+*) Paus. 8. 47, 2.
+
+*) Paus. 8. 45, 5.
+
 In the immediate neighbourhood of Tegea there was a shrine of Ares [GREEK],* situated on a mountain of which the name Cresium implies the worship of Cretan Dionysus.* The epithet was explained by the story that Ares enabled his child Aëropus to draw milk from the breasts of his mother after her death. The mother Aërope, grand-daughter of Aleus, was akin to Atalanta. The lifetime of her child by Ares was placed in the generation preceding the Dorian Invasion.*
 
+*) Paus. 8. 44, 7-8.
+
+*) On Dionysus [GREEK] _v._ Paus. 2. 23, 7-8.
+
+*) Paus. 8. 45, 3.
+
 Elsewhere in Arcadia, --- at Megalopolis* and near Acacesium* --- there were monuments attesting the foundation of the cult of Ares in this canton in early days. With this should be compared the statement of Amobius,* that there was a legend of thirteen months' servitude exacted of Ares in Arcadia. The general tendency of all the evidence is in support of the theory that the cult of Ares [GREEK] originated in primitive times.
+
+*) Paus. 8. 32, 3. The reference is to an altar of Ares said to be old.
+
+*) Paus. 8. 37, 12. The reference is to an altar of Ares in the temple of prophetic Pan above the shrine of Despoena.
+
+*) Arnob. _Adv. Nat._ 4. 25.
 
 There were two other legends of armed women in Greece, both localised, like the Tegeate story, in the Peloponnese. A statue of Ares at Argos was explained as the dedication of a band of women under the poetess Telesilla who had won a victory over the Spartans.* The other legend belonged to Sparta. Here a troop of women commemorated their victory over the Messenians by founding a temple to Aphrodite [GREEK].* The most obvious interpretation of the epithet is to derive it from Ares and to render it "Warlike." It is used of Athena in three oaths of alliance suggestive of the martial character of the goddess.* The Athenians built a temple to Athena [GREEK] at Plataea, constructed from the spoils of Marathon.* After his acquittal on the Areopagus Orestes is said to have dedicated an altar to Athena [GREEK].* In this the reference is evidently to the name of the hill on which the court sat, which the Greeks themselves, however mistaken they may have been in their etymology, certainly connected with Ares.* These instances of the use of the epithet favour the idea that it was derived from the name of Ares. It may be argued that Aphrodite [GREEK] was a type of the goddess conceived as guardian of the state. In this aspect she was more frequently worshipped at Sparta than elsewhere in Greece. The probabilities are that she was represented armed.* This political goddess of Sparta was the Oriental Aphrodite, called Urania. The fact that one group of armed women gave special honour to Ares, another to Aphrodite [GREEK], is of importance to the investigation. The hint that the two deities were in some way associated suggests connection between Ares and the Anatolian cult of the warlike Mother whom the Amazons worshipped.
 
