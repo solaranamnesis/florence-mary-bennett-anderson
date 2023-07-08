@@ -188,7 +188,7 @@ In vase-paintings, rather than in sculpture, we find the characteristic weapons 
 
 *) Paus. 10. 31, 8.
 
-*) The double-axe is called [GREEK] (_securis_) and also [GREEK]. _Cf._ Xen. _Anab._ 4. 4; Q. Sm. 1. 597. Plutarch (_Pomp._ 35) mentions the axe and the _pelta_ as Amazonian arms. The latter was carried also by the Thracians and Persians.
+*) The double-axe is called σάγαρις (_securis_) and also πέλεκυς. _Cf._ Xen. _Anab._ 4. 4; Q. Sm. 1. 597. Plutarch (_Pomp._ 35) mentions the axe and the _pelta_ as Amazonian arms. The latter was carried also by the Thracians and Persians.
 
 *) Paus. 10. 31, 8.
 
@@ -252,7 +252,7 @@ Alios age incitatos: alios age rabidos!"
 
 Ancient notices speak of other priests of Cybele, less important than the Galli. These were the Cybebi and Metragyrtae,* mendicant friars, whose machinations at Rome were scorned by Juvenal.*
 
-*) Photius and Suidas _s. v._ [GREEK]. These priests find a strikingly exact counterpart in the howling dervishes of Mohammedanism. In fact, many close parallels to the worship of the Great Mother may be met in the Orient today. The word _Cybebus_ is evidently the masculine form of the name of the goddess, given by Herodotus as [GREEK] (Herod. 5. 102).
+*) Photius and Suidas _s. v._ μητραγύρτης. These priests find a strikingly exact counterpart in the howling dervishes of Mohammedanism. In fact, many close parallels to the worship of the Great Mother may be met in the Orient today. The word _Cybebus_ is evidently the masculine form of the name of the goddess, given by Herodotus as Κυβήβη (Herod. 5. 102).
 
 *) Juv. _Sat._ 6. 512 ff.
 
@@ -262,15 +262,15 @@ In the cult legends the Galli of history are probably represented by the Coryban
 
 *) Paus. 8. 37, 6.
 
-*) The [GREEK] and [GREEK] of Epimenides, referred to in Strabo, 10. p. 474, and Diog. Laert. 1. 10.
+*) The Κουρήτων and Κορυβάντων γένεσις of Epimenides, referred to in Strabo, 10. p. 474, and Diog. Laert. 1. 10.
 
-*) In the course of excavations at Palaikastro in Crete a hymn of the Curetes was discovered, which is dated about 300 B. C. The hymn is discussed in three papers, _British School Annual_, 15 (1908-09): 1. Miss J. E. Harrison (pp. 308-338), "The Kouretes and Zeus Kouros: A Study in Pre-historic Sociology"; 2. R. C. Bosanquet (pp. 339-356), Text of the Hymn and certain religious aspects, "The Cult of Diktaean Zeus" and "The Cult of the Kouretes"; 3. Gilbert Murray (pp. 356-365), Restored Text, Translation, and Commentary. Miss Harrison's study is under these headings: "1. The Kouretes as [GREEK] and [GREEK]; 2. The Kouretes as Magicians, as [GREEK] and Metallurgists; 3. The Kouretes as armed [GREEK] 4. The Kouretes as [GREEK] and [GREEK]; 5. Zagreus and the Thunder-Rites; 6. The Kouros as Year-God; 7. The Kouretes as [GREEK]." The three articles form a very valuable contribution to the study of orgiastic cults and kindred subjects.
+*) In the course of excavations at Palaikastro in Crete a hymn of the Curetes was discovered, which is dated about 300 B. C. The hymn is discussed in three papers, _British School Annual_, 15 (1908-09): 1. Miss J. E. Harrison (pp. 308-338), "The Kouretes and Zeus Kouros: A Study in Pre-historic Sociology"; 2. R. C. Bosanquet (pp. 339-356), Text of the Hymn and certain religious aspects, "The Cult of Diktaean Zeus" and "The Cult of the Kouretes"; 3. Gilbert Murray (pp. 356-365), Restored Text, Translation, and Commentary. Miss Harrison's study is under these headings: "1. The Kouretes as Δαίμονες and Πρόπολοι; 2. The Kouretes as Magicians, as Μάντεις and Metallurgists; 3. The Kouretes as armed Ὀρχηστῆρες; 4. The Kouretes as Φύλακες and Παιδοτρόφοι; 5. Zagreus and the Thunder-Rites; 6. The Kouros as Year-God; 7. The Kouretes as Ὀργιοφάνται." The three articles form a very valuable contribution to the study of orgiastic cults and kindred subjects.
 
 *) Farnell speaks with certainty (_op. cit._ 2. p. 306) of the primitive warlike character of Cybele.
 
 *) Hesiod. _Theog._ 452, 487; Apollod. 1. 1, 6. The Orphic theogony connects the shouts of the Curetes and the clashing of their shields with the story of the overthrow of Cronus by Zeus. _Cf._ Lobeck, _Aglaoph._ p. 519; Hermann, _Orphica_, 6. p. 456.
 
-The Curetes are, moreover, confounded with the Dactyli, who are usually given as five in number, --- Heracles, Paeonius, Epimedes, Jasion, and Idas,* --- the metallurgists of Cretan and Trojan Ida, also with the mysterious [GREEK], who are either the Dioscuri or the Cabiri.* Idas is the name, not only of a Curete, but likewise of one of the Messenian rivals and counterparts of the Spartan [GREEK];* Jasion is the name of the mortal whom Demeter loved in Crete,* and who with her belongs to the mysteries of Samothrace; the Dactyl Heracles, whom Pausanias* carefully distinguishes from Alcmena's son, is by this writer* very cleverly identified with the deity of this name worshipped at Erythrae in Ionia, at Tyre, and even at Mycalessus in Boeotia. The Cabiri, being confounded with the Dactyli, are brought into close relation to the Curetes. On the other hand, they are confused with the Corybantes through Corybas, son of Jasion and Demeter, who was said to have introduced his mother's worship into Phrygia from Samothrace.*
+The Curetes are, moreover, confounded with the Dactyli, who are usually given as five in number, --- Heracles, Paeonius, Epimedes, Jasion, and Idas,* --- the metallurgists of Cretan and Trojan Ida, also with the mysterious Ἄνακτες παῖδες, who are either the Dioscuri or the Cabiri.* Idas is the name, not only of a Curete, but likewise of one of the Messenian rivals and counterparts of the Spartan Διόσκουροι;* Jasion is the name of the mortal whom Demeter loved in Crete,* and who with her belongs to the mysteries of Samothrace; the Dactyl Heracles, whom Pausanias* carefully distinguishes from Alcmena's son, is by this writer* very cleverly identified with the deity of this name worshipped at Erythrae in Ionia, at Tyre, and even at Mycalessus in Boeotia. The Cabiri, being confounded with the Dactyli, are brought into close relation to the Curetes. On the other hand, they are confused with the Corybantes through Corybas, son of Jasion and Demeter, who was said to have introduced his mother's worship into Phrygia from Samothrace.*
 
 *) Paus. 5. 7, 6. The scholiast on the passage sasrs that they were ten in number. Paus. gives the same names for the five, 5. 14, 7.
 
